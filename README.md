@@ -24,7 +24,7 @@ The most basic DNI I have is basic [DNI](https://dni-criteria.carrd.co/) criteri
 
 .
 
-### If you want to learn more about me, visit my strawpage! It's the best looking site, and the text is easier to read because it's in relatively broken up chunks. 
+### Please visit my strawpage if you want to learn more about me! It's the best looking site, and the text is easier to read because it's in relatively broken up chunks. 
 
 >[!NOTE]
 *(By the way, it's been created with my default zoom set to 80%, so it will look better if you set your zoom to 80% to read it! And also, I don't know how it looks on mobile! If you're on mobile, my patreon or rentry are still available to read. Sorry, and thanks for understanding!)*
