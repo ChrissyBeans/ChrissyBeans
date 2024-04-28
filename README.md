@@ -1,6 +1,6 @@
 # ***Hey there!***
 
-## Welcome to my github. There's nothing super important here, tbh. 
+**Welcome to my github. There's nothing super important here, tbh.**
 
 .
 
@@ -17,6 +17,10 @@ BYI, I'm often quiet! I'm also often very forgetful, and I can apologize a lot! 
 .
 
 The most basic DNI I have is basic [DNI](https://dni-criteria.carrd.co/) criteria. I will block any proship/profic on sight! I will not insult you or tell you to die, but I do not want to interact with you. For the rest of my DNI, please visit my full dni on any of my sites (preferrably the strawpage).
+
+.
+
+.
 
 .
 
