@@ -12,7 +12,7 @@ I'm most often offtab or not paying attention, so whisp to int/get my attention 
 
 .
 
-BYI, I'm often quiet! I'm also often very forgetful, and I can apologize a lot! Also, do not try to friend me without ever talking to me, I will not accept it. (Also please do not copy or inspo any of my avatars! Ask for inspo, but respect it if i say no!)
+BYI, I'm often quiet! I'm also often very forgetful, and I can apologize a lot! Also, do not try to friend me without ever talking to me, I will not accept it. (Also please do not copy or inspo any of my avatars! Ask for inspo, but respect my answer if I say no!)
 
 .
 
