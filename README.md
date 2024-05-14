@@ -6,7 +6,7 @@
 
 Short and sweet intro rq; 
 
-I'm Chrissy, I'm 21, I go by [she/her](https://en.pronouns.page/@Chrissybeans) pronouns. Any are probably okay, but I'm not sure yet. 
+I'm Chrissy, I'm 21, I go by [she](https://en.pronouns.page/@Chrissybeans)/[her](https://pronouns.cc/@Chrispybeans) pronouns. Any are probably okay, but I'm not sure yet. 
 
 I'm most often offtab or not paying attention, so whisp to int/get my attention most of the time. My status is always set to away! You gotta try interacting to see if I'm there.
 
