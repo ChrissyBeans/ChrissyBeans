@@ -2,19 +2,25 @@
 
 **Welcome to my github. There's nothing super important here, tbh.**
 
-.
+---
 
 Short and sweet intro rq; 
 
-I'm Chrissy, I'm 21, I go by [she](https://en.pronouns.page/@Chrissybeans)/[her](https://pronouns.cc/@Chrispybeans) pronouns. Any are probably okay, but I'm not sure yet. ((By the way, there are links to both pronouns.page and pronouns.cc there!))
+~
+
+I'm Chrissy, I'm 21, I go by [she](https://en.pronouns.page/@Chrissybeans)/[her](https://pronouns.cc/@Chrispybeans) pronouns. Any are probably okay, but I'm not sure yet. 
+
+((By the way, there are links to both pronouns.page and pronouns.cc there!))
+
+.
 
 I'm most often offtab or not paying attention, so whisp to int/get my attention most of the time. My status is always set to away! You gotta try interacting to see if I'm there.
 
-.
+~
 
 BYI, I'm often quiet! I'm also often very forgetful, and I can apologize a lot! Also, do not try to friend me without ever talking to me, I will not accept it. (Also please do not copy or inspo any of my avatars! Ask for inspo, but respect my answer if I say no!)
 
-.
+~
 
 The most basic DNI I have is basic [DNI](https://dni-criteria.carrd.co/) criteria. I will block any proship/profic on sight! I will not insult you or tell you to die, but I do not want to interact with you. For the rest of my DNI, please visit my full dni on any of my sites (preferrably the strawpage).
 
