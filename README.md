@@ -16,6 +16,9 @@ I'm Chrissy, I'm 21, I go by [she](https://en.pronouns.page/@Chrissybeans)/[her]
 
 I'm most often offtab or not paying attention, so whisp to int/get my attention most of the time. My status is always set to away! You gotta try interacting to see if I'm there.
 
+Please stop eating my grapes for god's sake there is a fruit basket like right there near where I sit. /lh
+And I'm sorry if I come off like a bitch, it's just irritating to look away for like a few minutes and come back to find some guy ate all the grapes right off the vine.
+
 ~
 
 BYI, I'm often quiet! I'm also often very forgetful, and I can apologize a lot! Also, do not try to friend me without ever talking to me, I will not accept it. (Also please do not copy or inspo any of my avatars! Ask for inspo, but respect my answer if I say no!)
