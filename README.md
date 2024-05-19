@@ -20,7 +20,7 @@ I'm most often offtab or not paying attention, so whisp to int/get my attention 
 
 Please stop eating my grapes for god's sake there is a fruit basket like right there near where I sit. /lh
 
-And I'm sorry if I come off like a bitch, it's just irritating to look away for like a few minutes and come back to find some guy ate all the grapes right off the vine.
+And I'm sorry if I come off like a bitch, it's just irritating and rude.
 
 ~
 
