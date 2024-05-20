@@ -12,6 +12,8 @@ I'm Chrissy, I'm 21, I go by [she](https://en.pronouns.page/@Chrissybeans)/[her]
 
 ((By the way, there are links to both pronouns.page and pronouns.cc there!))
 
+I am single handedly keeping the Deltarune side of the UT/DR area alive /hj
+
 .
 
 I'm most often offtab or not paying attention, so whisp to int/get my attention most of the time. My status is always set to away! You gotta try interacting to see if I'm there.
