@@ -16,7 +16,7 @@ I am single handedly keeping the Deltarune side of the UT/DR area alive /hj
 
 .
 
-I'm most often offtab or not paying attention, so whisp to int/get my attention most of the time. My status is always set to away! You gotta try interacting to see if I'm there.
+I'm most often offtab or not paying attention, so whisp to int/get my attention most of the time. My status is always set to away! You gotta try interacting to see if I'm there. || Mutuals are always allowed to sit w me! I may be awkward or surprised if I'm not used to it, but I genuinely don't mind !
 
 .
 
