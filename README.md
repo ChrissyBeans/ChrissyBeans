@@ -9,6 +9,7 @@ Short and sweet intro rq;
 ~
 
 I'm Chrissy, I'm 21, I go by [she](https://en.pronouns.page/@Chrissybeans)//[her](https://pronouns.cc/@Chrispybeans) pronouns. Any are probably okay, but I'm not sure yet. Taken by My Cowboy (QPR <3)
+
 ((By the way, there are links to both pronouns.page and pronouns.cc there!))
 
 I am single handedly keeping the Deltarune side of the UT/DR area alive /hj
