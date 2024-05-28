@@ -1,4 +1,4 @@
-# ***Hey there! || Temporary: I'm on xbox rn, replies might be slow!***
+# ***Hey there! || Temporary: I'm distracted, whisp 2 int w me!***
 
 **Welcome to my github. There's nothing super important here, tbh.**
 
