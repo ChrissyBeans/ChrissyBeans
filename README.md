@@ -46,6 +46,12 @@
 
 <p align=center> .
 
+<p align=center> .
+
+<p align=center> .
+
+<p align=center> .
+
 <p align=center> I may be lighthearted about it above, but eating my grapes is getting irritating on top of being rude (said because it's happened numerous times). At this point if randos start to do it, I'm just gonna start blocking. [thank you very much to these two idiots who whispered me after to mock me because they ate them /sar]
 
 *<p align=center>* ![ID: A cropped picture of a black textbox with pink text. There are two separate messages showcased, both sent at 7:27pm. The top message, from someone named Jophar, reads: your grapes were delicious. The bottom message, from someone named ahós-pagném, reads: I eat. End ID.](https://github.com/ChrissyBeans/ChrissyBeans/assets/147212417/02db5bf1-9e44-4365-917c-1d41d7c9661c)
