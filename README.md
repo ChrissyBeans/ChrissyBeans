@@ -48,7 +48,7 @@ I hide kind of freely. If I have you or a friend hidden, it's likely for a reaso
 
 .
 
-I may be lighthearted about it above, but randomly deciding to eat someone's grapes is irritating and rude (said because it's happened numerous times). At this point if randos start to do it, I'm just gonna start blocking. [thank you very much to these two idiots who whispered me after to mock me because they ate them /sar]
+I may be lighthearted about it above, but eating my grapes is getting irritating on top of being rude (said because it's happened numerous times). At this point if randos start to do it, I'm just gonna start blocking. [thank you very much to these two idiots who whispered me after to mock me because they ate them /sar]
 
 ![Screenshot 2024-05-23 at 19-46-08 Pony Town](https://github.com/ChrissyBeans/ChrissyBeans/assets/147212417/02db5bf1-9e44-4365-917c-1d41d7c9661c)
 
