@@ -29,8 +29,6 @@
 >[!NOTE]
 >(The strawpage is currently unavailable since that's under construction, but my other sites have DNIs listed too.)
 
-<p align=center> .
-
 **<p align=center> Note ahead of time: I don't mind at all if you try to int when I have dniuf in my name, just be mindful that I may not be in the mood to talk to people I don't know! *But* if you interact *solely* to mock me, don't whine about it if I tell you to fuck off. If your sole purpose is to antagonize me, I will absolutely curse you out and block you. I don't care if you think it's :sparkles:valid:sparkles: or not, seeing a boundary and choosing to push it because you personally view it as invalid is a dick move.**
 
 
