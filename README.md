@@ -43,11 +43,11 @@
 
 <p align=center> ((Also, btw, if you like.. admit it like one person did, I wouldn't be nearly as aggravated, but I'll get aggravated if you mock me about it.))
 
-.
+<p align=center> .
 
-.
+<p align=center> .
 
-.
+<p align=center> .
 
 ### *<p align=center>* ~Please visit my strawpage if you want to learn more about me! It's the best looking site, and the text is easier to read because it's in relatively broken up chunks.~
 
