@@ -1,38 +1,34 @@
-# ***Hey there! || Temporary: I'm distracted, whisp 2 int w me!***
+# ***<p align=center>Hey there! || Temporary: I'm distracted, whisp 2 int w me!***
 
-**Welcome to my github. There's nothing super important here, tbh.**
+**<p align=center> Welcome to my github. There's nothing super important here, tbh. But here's a short intro rq.**
 
 ---
 
-Short and sweet intro rq; 
+<p align=center> I'm Chrissy, I'm 21, I go by [she](https://en.pronouns.page/@Chrissybeans)//[her](https://pronouns.cc/@Chrispybeans) pronouns. Any are probably okay, but I'm not sure yet. Taken by My Cowboy (QPR <3)
+
+<p align=center> ((By the way, there are links to both pronouns.page and pronouns.cc there!))
+
+<p align=center> I am single handedly keeping the Deltarune side of the UT/DR area alive /hj
+
+.
+
+<p align=center> I'm most often offtab or not paying attention, so whisp to int/get my attention most of the time. My status is always set to away! You gotta try interacting to see if I'm there.
+
+<p align=center> Mutuals are always allowed to sit w me! I may be awkward or surprised if I'm not used to it, but I genuinely don't mind !
+
+.
+
+<p align=center> Please stop eating my grapes for god's sake there is a fruit basket like right there near where I sit. /lh
 
 ~
 
-I'm Chrissy, I'm 21, I go by [she](https://en.pronouns.page/@Chrissybeans)//[her](https://pronouns.cc/@Chrispybeans) pronouns. Any are probably okay, but I'm not sure yet. Taken by My Cowboy (QPR <3)
-
-((By the way, there are links to both pronouns.page and pronouns.cc there!))
-
-I am single handedly keeping the Deltarune side of the UT/DR area alive /hj
+<p align=center> BYI, I'm often quiet! I'm also often very forgetful, and I can apologize a lot! Also, do not try to friend me without ever talking to me, I will not accept it. (Also please do not copy or inspo any of my avatars! Ask for inspo, but respect my answer if I say no!)
 
 .
 
-I'm most often offtab or not paying attention, so whisp to int/get my attention most of the time. My status is always set to away! You gotta try interacting to see if I'm there.
+<p align=center> The most basic DNI I have is basic [DNI](https://dni-criteria.carrd.co/) criteria. I will block any proship/profic on sight! I will not insult you or tell you to die, but I do not want to interact with you. For the rest of my DNI, please visit my full dni on my strawpage. (currently unavailable since that's under construction, but my other sites have DNIs listed too.)
 
-Mutuals are always allowed to sit w me! I may be awkward or surprised if I'm not used to it, but I genuinely don't mind !
-
-.
-
-Please stop eating my grapes for god's sake there is a fruit basket like right there near where I sit. /lh
-
-~
-
-BYI, I'm often quiet! I'm also often very forgetful, and I can apologize a lot! Also, do not try to friend me without ever talking to me, I will not accept it. (Also please do not copy or inspo any of my avatars! Ask for inspo, but respect my answer if I say no!)
-
-.
-
-The most basic DNI I have is basic [DNI](https://dni-criteria.carrd.co/) criteria. I will block any proship/profic on sight! I will not insult you or tell you to die, but I do not want to interact with you. For the rest of my DNI, please visit my full dni on my strawpage. (currently unavailable since that's under construction, but my other sites have DNIs listed too.)
-
-I hide kind of freely. If I have you or a friend hidden, it's likely for a reason. Please understand.
+<p align=center> I hide kind of freely. If I have you or a friend hidden, it's likely for a reason. Please understand.
 
 .
 
@@ -40,7 +36,7 @@ I hide kind of freely. If I have you or a friend hidden, it's likely for a reaso
 
 .
 
-**Note ahead of time: I don't mind at all if you try to int when I have dniuf in my name, just be mindful that I may not be in the mood to talk to people I don't know! *But* if you interact *solely* to mock me, don't whine about it if I tell you to fuck off. If your sole purpose is to antagonize me, I will absolutely curse you out and block you. I don't care if you think it's :sparkles:valid:sparkles: or not, seeing a boundary and choosing to push it because you personally view it as invalid is a dick move.**
+**<p align=center> Note ahead of time: I don't mind at all if you try to int when I have dniuf in my name, just be mindful that I may not be in the mood to talk to people I don't know! *But* if you interact *solely* to mock me, don't whine about it if I tell you to fuck off. If your sole purpose is to antagonize me, I will absolutely curse you out and block you. I don't care if you think it's :sparkles:valid:sparkles: or not, seeing a boundary and choosing to push it because you personally view it as invalid is a dick move.**
 
 ~
 
@@ -48,7 +44,7 @@ I hide kind of freely. If I have you or a friend hidden, it's likely for a reaso
 
 .
 
-I may be lighthearted about it above, but eating my grapes is getting irritating on top of being rude (said because it's happened numerous times). At this point if randos start to do it, I'm just gonna start blocking. [thank you very much to these two idiots who whispered me after to mock me because they ate them /sar]
+<p align=center> I may be lighthearted about it above, but eating my grapes is getting irritating on top of being rude (said because it's happened numerous times). At this point if randos start to do it, I'm just gonna start blocking. [thank you very much to these two idiots who whispered me after to mock me because they ate them /sar]
 
 ![ID: A cropped picture of a black textbox with pink text. There are two separate messages showcased, both sent at 7:27pm. The top message, from someone named Jophar, reads: your grapes were delicious. The bottom message, from someone named ahós-pagném, reads: I eat. End ID.](https://github.com/ChrissyBeans/ChrissyBeans/assets/147212417/02db5bf1-9e44-4365-917c-1d41d7c9661c)
 
