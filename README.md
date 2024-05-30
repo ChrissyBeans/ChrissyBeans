@@ -1,4 +1,4 @@
-# ***<p align=center>Hey there! || Temporary: I'm distracted, whisp 2 int w me!***
+# *<p align=center>* **Hey there! || Temporary: I'm distracted, whisp 2 int w me!**
 
 ### ***<p align=center>Welcome to my github. There's nothing super important here, tbh. But here's a short intro rq.***
 
@@ -12,13 +12,9 @@
   
 <p align=center> I am single handedly keeping the Deltarune side of the UT/DR area alive /hj
 
-.
+<p align=center> .
 
 <p align=center> I'm most often offtab or not paying attention, so whisp to interact / get my attention most of the time. My status is always set to away! You gotta try interacting to see if I'm there.
-
-<p align=center> Mutuals are always allowed to C+H! I may be awkward or surprised if I'm not used to it, but I genuinely don't mind !
-
-<p align=center> .
 
 <p align=center> Please stop eating my grapes for god's sake there is a fruit basket like right there near where I sit. /lh
 
