@@ -35,19 +35,19 @@
 ---
 
 
+### *<p align=center>* ~Please visit my strawpage if you want to learn more about me! It's the best looking site, and the text is easier to read because it's in relatively broken up chunks.~
+
+>[!NOTE]
+*~~(By the way, it's been created with my default zoom set to 80%, so things may be bigger for you than they are for me! Sorry, and thanks for understanding!)~~*
+
+<p align=center> .
+
+<p align=center> .
+
+<p align=center> .
+
 <p align=center> I may be lighthearted about it above, but eating my grapes is getting irritating on top of being rude (said because it's happened numerous times). At this point if randos start to do it, I'm just gonna start blocking. [thank you very much to these two idiots who whispered me after to mock me because they ate them /sar]
 
 *<p align=center>* ![ID: A cropped picture of a black textbox with pink text. There are two separate messages showcased, both sent at 7:27pm. The top message, from someone named Jophar, reads: your grapes were delicious. The bottom message, from someone named ahós-pagném, reads: I eat. End ID.](https://github.com/ChrissyBeans/ChrissyBeans/assets/147212417/02db5bf1-9e44-4365-917c-1d41d7c9661c)
 
 <p align=center> ((Also, btw, if you like.. admit it like one person did, I wouldn't be nearly as aggravated, but I'll get aggravated if you mock me about it.))
-
-<p align=center> .
-
-<p align=center> .
-
-<p align=center> .
-
-### *<p align=center>* ~Please visit my strawpage if you want to learn more about me! It's the best looking site, and the text is easier to read because it's in relatively broken up chunks.~
-
->[!NOTE]
-*~~(By the way, it's been created with my default zoom set to 80%, so things may be bigger for you than they are for me! Sorry, and thanks for understanding!)~~*
