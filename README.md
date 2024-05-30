@@ -27,7 +27,9 @@
 <p align=center> Do not try to friend me without ever talking to me, I will not accept it. (Also please do not copy or inspo any of my avatars! Ask for inspo, but respect my answer if I say no!)
 
 
-*<p align=center>* The most basic DNI I have is basic [DNI](https://dni-criteria.carrd.co/) criteria. I will block any proship/profic on sight! I will not insult you or tell you to die, but I do not want to interact with you. For the rest of my DNI, please visit my full dni on my strawpage. (currently unavailable since that's under construction, but my other sites have DNIs listed too.)
+*<p align=center>* The most basic DNI I have is basic [DNI](https://dni-criteria.carrd.co/) criteria. I will block any proship/profic on sight! I will not insult you or tell you to die, but I do not want to interact with you. For the rest of my DNI, please visit my full dni on my strawpage. 
+>[!NOTE]
+>(The strawpage is currently unavailable since that's under construction, but my other sites have DNIs listed too.)
 
 <p align=center> I hide kind of freely. If I have you or a friend hidden, it's likely for a reason. Please understand.
 
