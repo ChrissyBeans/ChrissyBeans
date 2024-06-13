@@ -14,6 +14,8 @@
 
 <p align=center> I'm most often offtab or not paying attention, so whisp to interact / get my attention most of the time. My status is always set to away! You gotta try interacting to see if I'm there.
 
+<p align=center> If I'm ever seen cuddling/nuzzling/kissing someone, it's always platonic/friendly unless it's with my partner! (the nature of our affection is beyond your comprehension. /hj)
+
 <p align=center> .
 
 <p align=center> Please stop eating my grapes for god's sake there is a fruit basket like right there near where I sit. /lh
