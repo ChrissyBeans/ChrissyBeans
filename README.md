@@ -1,4 +1,4 @@
-# *<p align=center>* **Hey there! || Temporary: I'm distracted, whisp 2 int w me! I have public chat off, I will not see your messages otherwise!**
+# *<p align=center>* **Hey there! || Temporary: I'm distracted, whisp 2 int w me!**
 
 ### ***<p align=center>Welcome to my github. There's nothing super important here, tbh. But here's a short intro rq.***
 
