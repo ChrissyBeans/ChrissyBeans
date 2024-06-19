@@ -12,9 +12,12 @@
   
 <p align=center> I am single handedly keeping the Deltarune side of the UT/DR area alive /hj
 
-<p align=center> I'm most often offtab or not paying attention, so whisp to interact / get my attention most of the time. My status is always set to away! You gotta try interacting to see if I'm there.
+<p align=center> I'm most often offtab or not paying attention, so whisp to interact / get my attention most of the time. My status is always set to away! You gotta try interacting to see if I'm there. Also I make frequent use of tonetags as you can see. If you genuinely want me to not use them, you gotta tell me, and my memory is bad so you may have to remind me more than once, sorry.
+
+<p align=center> .
 
 <p align=center> If I'm ever seen cuddling/nuzzling/kissing someone, it's always platonic/friendly unless it's with my partner! (the nature of our affection is beyond your comprehension. /hj)
+<p align=center> Always assume that the person I may be acting affectionate with is not my partner, unless stated otherwise. My partner isn't on PT as often as I am, and they're pretty private anyways so mind your own business (/lh).
 
 <p align=center> .
 
