@@ -17,7 +17,7 @@
 <p align=center> .
 
 <p align=center> If I'm ever seen cuddling/nuzzling/kissing someone, it's always platonic/friendly unless it's with my partner! (the nature of our affection is beyond your comprehension. /hj)
-<p align=center> Always assume that the person I may be acting affectionate with is not my partner, unless stated otherwise. My partner isn't on PT as often as I am, and they're pretty private anyways so mind your own business (/lh).
+<p align=center> Always assume that the person I may be acting affectionate with is not my partner, unless stated otherwise. My partner isn't on PT as often as I am, and they're pretty private anyways so mind your own business. (/lh)
 
 <p align=center> .
 
