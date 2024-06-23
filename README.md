@@ -5,8 +5,7 @@
 ---
 
 
-*<p align=center>* I'm Chrissy, I'm 21, I go by [she](https://en.pronouns.page/@Chrissybeans) [^1]//[her](https://pronouns.cc/@Chrispybeans) [^2] pronouns. Any are probably okay, but I'm not sure yet. I'm demiaroace/pan. Taken by My Cowboy (QPR <3)
-<p align=center> <sub/> ((By the way, there are links to both pronouns.page and pronouns.cc there!))
+*<p align=center>* I'm Chrissy, I'm 21, I go by [she/her](https://pronouns.cc/@Chrispybeans) pronouns. Any are probably okay, but I'm not sure yet. I'm demiaroace/pan. Taken by My Cowboy (QPR <3)
 
 <p align=center> .
   
@@ -46,9 +45,6 @@
 
 >[!NOTE]
 *~~(By the way, it's been created with my default zoom set to 80%, so things may be bigger for you than they are for me! Sorry, and thanks for understanding!)~~*
-
-[^1]:This is the pronouns.page link!
-[^2]:This is the pronouns.cc link!
 
 
 
