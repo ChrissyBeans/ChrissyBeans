@@ -5,7 +5,7 @@
 ---
 
 
-*<p align=center>* I'm Chrissy, I'm 21, I go by [she](https://en.pronouns.page/@Chrissybeans) [^1] // [her](https://pronouns.cc/@Chrispybeans) [^2] pronouns. Any are probably okay, but I'm not sure yet. I'm demiaroace/pan. Taken by My Cowboy (QPR <3)
+*<p align=center>* I'm Chrissy, I'm 21, I go by [she](https://en.pronouns.page/@Chrissybeans)[^1] // [her](https://pronouns.cc/@Chrispybeans)[^2] pronouns. Any are probably okay, but I'm not sure yet. I'm demiaroace/pan. Taken by My Cowboy (QPR <3)
 
 <p align=center> .
   
@@ -60,10 +60,24 @@
 
 <p align=center> .
 
-*<p align=center>* [^1]: This is the pronouns.page link!
-
-*<p align=center>* [^2]: This is the pronouns.cc link!
-
 <p align=center> [thank you very much to these two idiots who whispered me after to mock me because they ate my grapes /sar]
 
 *<p align=center>* ![ID: A cropped picture of a black textbox with pink text. There are two separate messages showcased, both sent at 7:27pm. The top message, from someone named Jophar, reads: your grapes were delicious. The bottom message, from someone named ahós-pagném, reads: I eat. End ID.](https://github.com/ChrissyBeans/ChrissyBeans/assets/147212417/02db5bf1-9e44-4365-917c-1d41d7c9661c)
+
+<p align=center> .
+
+<p align=center> .
+
+<p align=center> .
+
+<p align=center> .
+
+<p align=center> .
+
+<p align=center> .
+
+<p align=center> .
+
+*<p align=center>* [^1]: This is the pronouns.page link!
+
+*<p align=center>* [^2]: This is the pronouns.cc link!
