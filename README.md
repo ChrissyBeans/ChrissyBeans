@@ -1,4 +1,4 @@
-# *<p align=center>* **Hey there! || IDWT(IJWD) stands for I don't wanna talk (I just wanna dance) !! It's one of my favorite songs by Glass Animals. || *Pub chat off, whisp 2 int!!***
+# *<p align=center>* **Hey there! || *Pub chat off, whisp 2 int!!***
 
 ### ***<p align=center>Welcome to my github. There's nothing super important here, tbh. But here's a short intro rq.***
 
