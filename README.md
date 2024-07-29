@@ -8,29 +8,22 @@
 *<p align=center>* I'm Chrissy, I'm 21, I go by [she](https://en.pronouns.page/@Chrissybeans) [^1] // [her](https://pronouns.cc/@Chrispybeans) [^2] pronouns. Any are probably okay, but I'm not sure yet. I'm demiaroace/pan. Taken by My Cowboy (QPR <3)
 
 <p align=center> .
-  
-<p align=center> I am single handedly keeping the Deltarune side of the UT/DR area alive /hj
 
-<p align=center> I'm most often offtab or not paying attention, so whisp to interact / get my attention most of the time. My status is always set to away! You gotta try interacting to see if I'm there. Also I make frequent use of tonetags as you can see. If you genuinely want me to not use them, you gotta tell me, and my memory is bad so you may have to remind me more than once, sorry.
+<p align=center> I'm frequently offtab or not paying attention, so whisp to interact / get my attention most of the time. My status is always set to away! You gotta try interacting to see if I'm there. Also I make frequent use of tonetags as you can see. If you genuinely want me to not use them, you gotta tell me, and my memory is bad so you may have to remind me more than once, sorry.
 
 <p align=center> .
 
-<p align=center> If I'm ever seen cuddling/nuzzling/kissing someone, it's always platonic/friendly unless it's with my partner! (the nature of our affection is beyond your comprehension. /hj)
-<p align=center> Always assume that the person I may be acting affectionate with is not my partner, unless stated otherwise. My partner isn't on PT as often as I am, and they're pretty private anyways so mind your own business. (/lh)
-
-<p align=center> .
-
-<p align=center> Please stop eating my grapes for god's sake there is a fruit basket like right there near where I sit. /lh
-<p align=center> It actually is kind of irritating in a way I can't explain. Get your own grapes, quit stealing grapes from some stranger.
+*<p align=center>* ~~Please stop eating my grapes for god's sake there is a fruit basket like right there near where I sit. /lh~~ Please stop eating my fruit if I have any in general.
+<p align=center> It actually is kind of irritating in a way I can't explain. Get your own, quit stealing fruit from some stranger.
 
 ---
 
 
-<p align=center> Do not try to friend me if we didn't talk beforehand, I will not accept it.
+*<p align=center>* **__Do not try to friend me if we didn't talk beforehand, I will not accept it.__**
 
 *<p align=center>* The most basic DNI I have is basic [DNI](https://dni-criteria.carrd.co/) criteria. I will block any proship/profic on sight! I will not insult you or tell you to die, but I do not want to interact with you. ~~For the rest of my DNI, please visit my full dni on my strawpage.~~
 
-<p align=center> I hide kind of freely. If I have you or a friend hidden, it's likely for a reason. Please understand.
+<p align=center> I hide freely. If I have you or a friend hidden, it's likely for a reason. Please understand.
 
 >[!NOTE]
 >(The strawpage is currently unavailable since that's under construction, but my other sites have DNIs listed too.)
@@ -60,23 +53,23 @@
 
 <p align=center> .
 
+<p align=center> .
+
+<p align=center> .
+
+<p align=center> .
+
+<p align=center> .
+
+<p align=center> .
+
+<p align=center> .
+
+<p align=center> .
+
 <p align=center> [thank you very much to these two idiots who whispered me after to mock me because they ate my grapes /sar]
 
 *<p align=center>* ![ID: A cropped picture of a black textbox with pink text. There are two separate messages showcased, both sent at 7:27pm. The top message, from someone named Jophar, reads: your grapes were delicious. The bottom message, from someone named ahós-pagném, reads: I eat. End ID.](https://github.com/ChrissyBeans/ChrissyBeans/assets/147212417/02db5bf1-9e44-4365-917c-1d41d7c9661c)
-
-<p align=center> .
-
-<p align=center> .
-
-<p align=center> .
-
-<p align=center> .
-
-<p align=center> .
-
-<p align=center> .
-
-<p align=center> .
 
 [^1]: This is the pronouns.page link!
 
