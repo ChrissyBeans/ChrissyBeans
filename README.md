@@ -93,13 +93,15 @@
 
 <p align=center> .
 
-<p align=center> [thank you very much to these two idiots who whispered me after to mock me because they ate my grapes /sar]
+<p align=center> thank you very much to these two idiots who whispered me after to mock me because they ate my grapes /sar
 
 *<p align=center>* ![ID: A cropped picture of a black textbox with pink text. There are two separate messages showcased, both sent at 7:27pm. The top message, from someone named Jophar, reads: your grapes were delicious. The bottom message, from someone named ahós-pagném, reads: I eat. End ID.](https://github.com/ChrissyBeans/ChrissyBeans/assets/147212417/02db5bf1-9e44-4365-917c-1d41d7c9661c)
 
 <p align=center> .
 
-<p align=center> [I also want you to know that if you hate hh/hb to such an extreme that you'd tell other people to die over it, you should DNI and also idk, grow up 💀? It's fine to not want the fandoms to interact, I won't like, bregrudge you that. But if you take it to the point you'd tell people to die about it, then like.... idk grow and mature because good god you will need it???? This is also extremely directed at that one loser who got so angry upon seeing my friends in hh/hb avatars that he said he'd become the next hitler for hh/hb fans. And when I called him a dorkass for that because that's.... a really fucking stupid and unnecessary thing to say, he told me to kill myself. Anyways if you would genuinely tell people to kill themselves over hh/hb DNI I am actually so serious. I do not care for her media but jesus christ that's so very unnecessary.]
+<p align=center> I also want you to know that if you hate hh/hb to such an extreme that you'd tell other people to die over it, you should DNI and also idk, grow up 💀? It's fine to not want the fandoms to interact, I won't like, bregrudge you that. But if you take it to the point you'd tell people to die about it, then like.... idk grow and mature because good god you will need it???? This is also extremely directed at that one loser who got so angry upon seeing my friends in hh/hb avatars that he said he'd become the next hitler for hh/hb fans. And when I called him a dorkass for that because that's.... a really fucking stupid and unnecessary thing to say, he told me to kill myself. 
+  
+<p align=center> Anyways if you would genuinely tell people to kill themselves over hh/hb DNI I am actually so serious. I do not care for her media but jesus christ that's so very unnecessary. Also the block button is literally RIGHT THERE like jesus fucking christ 😭 And if you have reached the block limit then there's this magical thing called... ignoring them! Like holy shit it is not that hard. Anyways no this is not directed at your everyday hh/hb disliker, only at those who would take this extreme.
 
 <p align=center> .
 
