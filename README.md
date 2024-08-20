@@ -25,6 +25,8 @@
 
 <p align=center> I hide freely. If I have you or a friend hidden, it's likely for a reason. Please understand.
 
+<p align=center> I may get anxious if I find out someone I admired hid me. I'm a chronic people pleaser and may end up asking friends of said person if they hid me -- I am sorry if this makes you uncomfortable, it's just that the whole thing of not knowing what I did will weigh on me. /gen
+
 >[!NOTE]
 >(The strawpage is currently unavailable since that's under construction, but my other sites have DNIs listed too.)
 
