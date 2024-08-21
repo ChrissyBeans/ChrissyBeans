@@ -9,7 +9,7 @@
 
 <p align=center> .
 
-<p align=center> I'm frequently offtab or not paying attention, so whisp to interact / get my attention most of the time. My status is always set to away! You gotta try interacting to see if I'm there. Also I make frequent use of tonetags as you can see. If you genuinely want me to not use them, you gotta tell me, and my memory is bad so you may have to remind me more than once, sorry. I'm friendly!! I'm just awkward/shy. If you approach me kindly I will return it! And if you're friends with the people I sit with, you can sit next to me, even if I don't know you! All green names are welcome to sit with me !
+<p align=center> I'm frequently offtab or not paying attention, so whisp to interact / get my attention most of the time. My status is always set to away! You gotta try interacting to see if I'm there. Also I make frequent use of tonetags as you can see. If you genuinely want me to not use them, you gotta tell me, and my memory is bad so you may have to remind me more than once, sorry. I'm friendly!! I'm just awkward/shy. If you approach me kindly I will return it! And if you're friends with the people I sit with, you can C+H with me, even if I don't know you! All green names are welcome to sit with me !
 
 <p align=center> .
 
