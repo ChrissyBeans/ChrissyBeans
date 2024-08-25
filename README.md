@@ -4,6 +4,11 @@
 
 ---
 
+<p align=center> .
+
+#### *<p align=center>* [Sign my new strawpage, made specifically for being a guestbook!](https://chrispybeans.straw.page/) Now you don't have to wait to sign a strawpage haha
+
+<p align=center> .
 
 *<p align=center>* I'm Chrissy, I'm 21, I go by [she](https://en.pronouns.page/@Chrissybeans) [^1] // [her](https://pronouns.cc/@Chrispybeans) [^2] pronouns. Any are probably okay, but I'm not sure yet. I'm demiaroace/pan. Taken by My Cowboy (QPR <3)
 
