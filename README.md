@@ -6,7 +6,7 @@
 
 <p align=center> .
 
-#### *<p align=center>* [Sign my new strawpage, made specifically for being a guestbook!](https://chrispybeans.straw.page/) Now you don't have to wait to sign a strawpage haha
+### *<p align=center>* [Sign my new strawpage, made specifically for being a guestbook!](https://chrispybeans.straw.page/) Now you don't have to wait to sign a strawpage haha
 
 <p align=center> .
 
