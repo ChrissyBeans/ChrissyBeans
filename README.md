@@ -1,5 +1,4 @@
 # *<p align=center>* **Hey there! || *Pub chat off, whisp 2 int!! || I'll work on this at some point I prommy lol***
-## *<p align=center>* Iwcareuf because I'm not in a great mood. I won't be unfriendly though.
 
 ### ***<p align=center>Welcome to my github. There's nothing super important here, tbh. But here's a short intro rq.***
 
