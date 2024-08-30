@@ -7,6 +7,7 @@
 <p align=center> .
 
 ### *<p align=center>* [Sign my new strawpage, made specifically for being a guestbook!](https://chrispybeans.straw.page/) Now you don't have to wait to sign a strawpage haha
+#### *<p align=center>* Whoever drew that damselfly (assuming it was someone here on pt and not from explore) ily. 
 
 <p align=center> .
 
