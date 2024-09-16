@@ -28,6 +28,8 @@
 
 *<p align=center>* The most basic DNI I have is basic [DNI](https://dni-criteria.carrd.co/) criteria. If I'm on the safe server, minors limit interaction unless friends.<sup> I will be friendly if you compliment me but I am not really looking to make friends with y'all. I am an adult!</sup> 
 
+### *<p align=center>* **__If you accuse people of faking DID/OSDD just by virtue of being on here, don't talk to me. We will not get along, I already do not like you.__**
+
 *<p align=center>* I will block any proship/profic on sight! I will not insult you or tell you to die, but I *do **not*** want to interact with you. Also spitting on me will earn you an immediate, very unkind fuck off and a permanent block if you are a stranger. For the rest of my DNI, please visit my full dni either of my sites listed.
 
 <p align=center> I hide freely. If I have you or a friend hidden, it's likely for a reason. Please understand.
