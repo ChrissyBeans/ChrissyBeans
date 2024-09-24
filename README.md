@@ -35,6 +35,10 @@
 *<p align=center>* I will block any proship/profic on sight! I will not insult you or tell you to die, but I *do **not*** want to interact with you. Also spitting on me will earn you an immediate, very unkind fuck off and a permanent block if you are a stranger. For the rest of my DNI, please visit my full dni either of my sites listed.
 
 <p align=center> I hide freely. If I have you or a friend hidden, it's likely for a reason. Please understand.
+  
+*<p align=center>* Also btw since I do hide freely there may be times I'm sitting on/under someone. Typically though I will likely be aware since I am most frequently seen with [Silent](https://github.com/starscaptain/) and [Mary](https://github.com/sundybundy) -- sometimes joined by other friends but mostly those two. If I am not accompanied by those two or other friends I am likely unaware I'm on/under someone. If you're not sure, WHISPER to ask.
+
+<p align=center>
 
 **<p align=center> Note ahead of time: I don't mind at all if you try to int when I have dniuf in my name, just be mindful that I may not be in the mood to talk to people I don't know! *But* if you interact *solely* to mock me, don't whine about it if I tell you to fuck off. If your sole purpose is to antagonize me, I will absolutely curse you out and block you. I don't care if you think it's :sparkles:valid:sparkles: or not, seeing a boundary and choosing to push it because you personally view it as invalid is a dick move.**
 
