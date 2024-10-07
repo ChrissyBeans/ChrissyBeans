@@ -36,7 +36,7 @@
 
 <p align=center> I hide freely. If I have you or a friend hidden, it's likely for a reason. Please understand.
   
-*<p align=center>* Also btw since I do hide freely there may be times I'm sitting on/under someone. Typically though I will likely be aware since I am most frequently seen with [Silent](https://github.com/starscaptain/) and [Mary](https://github.com/sundybundy) -- sometimes joined by other friends but mostly those two. If I am not accompanied by those two or other friends I am likely unaware I'm on/under someone. If you're not sure, WHISPER to ask.
+*<p align=center>* Also btw since I do hide freely there may be times I'm sitting on/under someone. Typically though I will likely be aware since I am most frequently seen with [Silent](https://github.com/starscaptain/) and [Mary](https://github.com/latewife) -- sometimes joined by other friends but mostly those two. If I am not accompanied by those two or other friends I am likely unaware I'm on/under someone. If you're not sure, WHISPER to ask.
 
 <p align=center> .
 
