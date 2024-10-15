@@ -2,6 +2,8 @@
 
 ### ***<p align=center>Welcome to my github. There's nothing super important here, tbh. But here's a short intro rq.***
 
+## *<p align=center>* [ALSO DO YOUR DAILY CLICKS](https://arab.org/click-to-help/palestine/)
+
 ---
 
 <p align=center> .
