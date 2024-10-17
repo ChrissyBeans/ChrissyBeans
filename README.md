@@ -19,6 +19,19 @@
 
 <p align=center> .
 
+#### <p align=center> Status meanings:
+*<p align=center>* :crescent_moon: ***Away:** I'm basically <ins>always</ins> on this. You have to try and interact to see if I'm there.* <-
+
+*<p align=center>* :no_entry: ***Do not disturb/busy:** Genuinely busy, or in a bad mood. Friends are free to interact, but my replies may be slower. Strangers can interact <ins>with a bit of caution</ins>; if I'm busy I will not have time for conversation, and if I'm in a bad mood I will not want to talk to strangers.*
+
+<p align=center> .
+  
+*<p align=center>* :green_circle: ***Active:** I do not really use this at all.*
+*<p align=center>* 🔵/💬/🎭 ***Looking for chat/rp:** I do not ever use these, sorry LOL.*
+
+<p align=center> .
+<p align=center> .
+
 #### <p align=center> PLEASE FOR THE LOVE OF GOD IF YOU RECOGNIZE MY SYSTEM SHOCK AVATARS INT !!!!!! I LOVE THAT BIG MEAN AI LADY SO MUCH I'M BEGGING ON MY HANDS AND KNEES
 
 <p align=center> I'm frequently offtab or not paying attention, so whisp to interact / get my attention most of the time. My status is always set to away! You gotta try interacting to see if I'm there. Also I make frequent use of tonetags as you can see. If you genuinely want me to not use them, you gotta tell me, and my memory is bad so you may have to remind me more than once, sorry. I'm friendly!! I'm just awkward/shy. If you approach me kindly I will return it! And if you're friends with the people I sit with, you can C+H with me, even if I don't know you! (That being said, please don't cover me if you're not friended!) All green names are welcome to sit with me !
