@@ -20,7 +20,7 @@
 <p align=center> .
 
 #### <p align=center> Status meanings:
-*<p align=center>* :crescent_moon: ***Away:** I'm basically <ins>always</ins> on this. You have to try and interact to see if I'm there.* <-
+*<p align=center>* :crescent_moon: ***Away:** I'm basically <ins>always</ins> on this. You have to try and interact to see if I'm there.*
 
 *<p align=center>* :no_entry: ***Do not disturb/busy:** Genuinely busy, or in a bad mood. Friends are free to interact, but my replies may be slower. Strangers can interact <ins>with a bit of caution</ins>; if I'm busy I will not have time for conversation, and if I'm in a bad mood I will not want to talk to strangers.*
 
