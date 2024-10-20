@@ -41,7 +41,7 @@
 
 *<p align=center>* ***DNC:** Do Not Copy. Basically exactly what it says on the tin -- none of my avatars are free to copy anyways, but avatars with this in the name are likely <ins>OC</ins> avatars.*
 
-*<p align=center>* ***DNIUF/C:** Do Not Interact Unless Friends or Close. Essentially, if I have this in the name, I would prefer anyone outside my friendslist avoid interacting -- because I am likely in a bad mood or too busy to keep up with a stranger's conversation.
+*<p align=center>* ***DNIUF/C:** Do Not Interact Unless Friends or Close. Essentially, if I have this in the name, I would prefer anyone outside my friendslist avoid interacting -- because I am likely in a bad mood or too busy to keep up with a stranger's conversation.*
   
 *<p align=center>* ***IWC:** Interact With Caution. If this is in the name, I am definitely in a bad mood. Interact at your own risk.* $\color{Red}{Don't\ be\ surprised\ if\ I\ snap\ at\ you\ when\ made\ fun\ of.}$
 *<p align=center>* ***IWCare:** Interact With Care. If I use this, I'm likely upset. Again, if you actively choose to antagonize me, do not act surprised if I tell you to fuck off. Mocking me will typically lead to me hardblocking you, anyway.*
