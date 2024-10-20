@@ -15,6 +15,10 @@
 
 <p align=center> .
 
+#### *<p align=center>* I genuinely cannot believe this needs explaining but for the love of fucking god don't make it weird if me and my friends are sitting together. Not everything needs to have a romantic connotation or reasoning you freak. /dir
+
+<p align=center> .
+
 *<p align=center>* I'm Chrissy, I'm 21, I go by [she](https://en.pronouns.page/@Chrissybeans) [^1] // [her](https://pronouns.cc/@Chrispybeans) [^2] pronouns. Any are probably okay, but I'm not sure yet. I'm demiaroace/pan. Taken by My Cowboy (QPR <3)
 
 <p align=center> .
