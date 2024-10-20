@@ -36,6 +36,19 @@
 <p align=center> .
 <p align=center> .
 
+#### <p align=center> Nametag meanings:
+*<p align=center>* ***W2I:** Whisper to interact. I use this when I'm offtab or afk\(ish), to specify that if you want to actively interact, you **have** to whisper in order for me to keep the convo up.*
+
+*<p align=center>* ***DNC:** Do Not Copy. Basically exactly what it says on the tin -- none of my avatars are free to copy anyways, but avatars with this in the name are likely <ins>OC</ins> avatars.*
+
+*<p align=center>* ***DNIUF/C:** Do Not Interact Unless Friends or Close. Essentially, if I have this in the name, I would prefer anyone outside my friendslist avoid interacting -- because I am likely in a bad mood or too busy to keep up with a stranger's conversation.
+  
+*<p align=center>* ***IWC:** Interact With Caution. If this is in the name, I am definitely in a bad mood. Interact at your own risk.* $\color{Red}{Don't\ be\ surprised\ if\ I\ snap\ at\ you\ when\ made\ fun\ of.}$
+*<p align=center>* ***IWCare:** Interact With Care. If I use this, I'm likely upset. Again, if you actively choose to antagonize me, do not act surprised if I tell you to fuck off. Mocking me will typically lead to me hardblocking you, anyway.*
+
+<p align=center> .
+<p align=center> .
+
 #### <p align=center> PLEASE FOR THE LOVE OF GOD IF YOU RECOGNIZE MY SYSTEM SHOCK AVATARS INT !!!!!! I LOVE THAT BIG MEAN AI LADY SO MUCH I'M BEGGING ON MY HANDS AND KNEES
 
 <p align=center> I'm frequently offtab or not paying attention, so whisp to interact / get my attention most of the time. My status is always set to away! You gotta try interacting to see if I'm there. Also I make frequent use of tonetags as you can see. If you genuinely want me to not use them, you gotta tell me, and my memory is bad so you may have to remind me more than once, sorry. I'm friendly!! I'm just awkward/shy. If you approach me kindly I will return it! And if you're friends with the people I sit with, you can C+H with me, even if I don't know you! (That being said, please don't cover me if you're not friended!) All green names are welcome to sit with me !
