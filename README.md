@@ -1,4 +1,4 @@
-# *<p align=center>* **Hey there! || *I'll work on this at some point I prommy lol. Working on rentry so expect changes to this.***
+# *<p align=center>* **Hey there! || *I'll work on this at some point I prommy lol. Working on rentry so expect changes to this. Yes this looks bad rn I know.***
 
 ### ***<p align=center>Welcome to my github. There's nothing super important here, tbh. But here's a short intro rq.***
 
