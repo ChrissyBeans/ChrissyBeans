@@ -4,7 +4,6 @@
 
 ## *<p align=center>* [ALSO DO YOUR DAILY CLICKS](https://arab.org/click-to-help/palestine/)
 
----
 
 <p align=center> .
 
@@ -12,6 +11,9 @@
 #### *<p align=center>* Whoever drew that damselfly (assuming it was someone here on pt and not from explore) ily. 
 
 ### *<p align=center>* [Also go sign my new atabook please for the love of god. /silly](https://glass-animals.atabook.org/)
+
+---
+
 
 <p align=center> .
 
