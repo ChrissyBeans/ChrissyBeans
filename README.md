@@ -23,6 +23,8 @@
 
 *<p align=center>* I'm Chrissy, I'm 21, I go by [she](https://en.pronouns.page/@Chrissybeans) [^1] // [her](https://pronouns.cc/@Chrispybeans) [^2] pronouns. Any are probably okay, but I'm not sure yet. I'm demiaroace/pan. Taken by My Cowboy (QPR <3)
 
+<p align=center> [Status and nametag meanings](https://rentry.co/1-800-SPAMTONG)
+
 #### <p align=center> PLEASE FOR THE LOVE OF GOD IF YOU RECOGNIZE MY SYSTEM SHOCK AVATARS INT !!!!!! I LOVE THAT BIG MEAN AI LADY SO MUCH I'M BEGGING ON MY HANDS AND KNEES
 
 <p align=center> I'm frequently offtab or not paying attention, so whisp to interact / get my attention most of the time. My status is always set to away! You gotta try interacting to see if I'm there. Also I make frequent use of tonetags as you can see. If you genuinely want me to not use them, you gotta tell me, and my memory is bad so you may have to remind me more than once, sorry. I'm friendly!! I'm just awkward/shy. If you approach me kindly I will return it! And if you're friends with the people I sit with, you can C+H with me, even if I don't know you! (That being said, please don't cover me if you're not friended!) All green names are welcome to sit with me !
