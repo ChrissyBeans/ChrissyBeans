@@ -23,7 +23,7 @@
 
 *<p align=center>* I'm Chrissy, I'm 21, I go by [she](https://en.pronouns.page/@Chrissybeans) [^1] // [her](https://pronouns.cc/@Chrispybeans) [^2] pronouns. Any are probably okay, but I'm not sure yet. I'm demiaroace/pan. Taken by My Cowboy (QPR <3)
 
-*<p align=center>* [Status and nametag meanings](https://rentry.co/1-800-SPAMTONG)
+#### *<p align=center>* [Status and nametag meanings](https://rentry.co/1-800-SPAMTONG)
 
 #### <p align=center> PLEASE FOR THE LOVE OF GOD IF YOU RECOGNIZE MY SYSTEM SHOCK AVATARS INT !!!!!! I LOVE THAT BIG MEAN AI LADY SO MUCH I'M BEGGING ON MY HANDS AND KNEES
 
