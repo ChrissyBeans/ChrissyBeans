@@ -43,6 +43,8 @@
 
 ### *<p align=center>* *I am a singlet frequently surrounded by systems! I am very protective of them. If you hate systems, or try to start shit with my friends, I **<ins>will</ins>** eat you.*
 
+### *<p align=center>* If you partake in or make references to r/systemscringe do not interact for the love of god you people make me so uncomfortable. 
+
 *<p align=center>* I will block any proship/profic on sight! I will not insult you or tell you to die, but I *do **not*** want to interact with you. Also spitting on me will earn you an immediate, very unkind fuck off and a permanent block if you are a stranger. For the rest of my DNI, please visit my full dni either of my sites listed.
 
 <p align=center> I hide freely. If I have you or a friend hidden, it's likely for a reason. Please understand.
