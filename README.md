@@ -1,4 +1,4 @@
-# *<p align=center>* **Hey there! **
+# *<p align=center>* **Hey there!**
 
 ## *<p align=center>* [ALSO DO YOUR DAILY CLICKS](https://arab.org/click-to-help/palestine/)
 
