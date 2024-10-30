@@ -1,6 +1,4 @@
-# *<p align=center>* **Hey there! || *I'll work on this at some point I prommy lol. Working on rentry so expect changes to this. Yes this looks bad rn I know.***
-
-### ***<p align=center>Welcome to my github. There's nothing super important here, tbh. But here's a short intro rq.***
+# *<p align=center>* **Hey there! || *Main rentry is still a wip so for stuff like my interests or dni, go to the patreon or old rentry.***
 
 ## *<p align=center>* [ALSO DO YOUR DAILY CLICKS](https://arab.org/click-to-help/palestine/)
 
@@ -14,7 +12,7 @@
 
 <p align=center> .
 
-#### *<p align=center>* I genuinely cannot believe this needs explaining but for the love of fucking god don't make it weird if me and my friends are sitting together. Not everything needs to have a romantic connotation or reasoning you freak. /dir
+#### *<p align=center>* I genuinely cannot believe this needs explaining but for the love of god don't make it weird if me and my friends are sitting together. Not everything needs to have a romantic connotation or reasoning you freak. /dir
 
 <p align=center> .
 
