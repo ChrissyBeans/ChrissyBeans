@@ -1,4 +1,4 @@
-# *<p align=center>* **Hey there! || *Main rentry is still a wip so for stuff like my interests or dni, go to the patreon or old rentry.***
+# *<p align=center>* **Hey there! **
 
 ## *<p align=center>* [ALSO DO YOUR DAILY CLICKS](https://arab.org/click-to-help/palestine/)
 
