@@ -8,10 +8,13 @@
 ## *<p align=center>* [Also go sign my atabook please for the love of god. /silly](https://glass-animals.atabook.org/)
 
 ---
+>[!NOTE]
+*(By the way, my pages have been created with my default zoom set to 80%, so things may be bigger for you than they are for me! Sorry, and thanks for understanding!)*
 
 ### *<p align=center>* [New rentry! (Still a wip. Visit old rentry for interests and dni!)](https://rentry.co/Chrissy-beans)
 
 ### *<p align=center>* [Status and nametag meanings](https://rentry.co/1-800-SPAMTONG)
+#### *<p align=center>* Please visit any of the sites listed to learn more about me. New strawpage will be available when it's done.
 
 <p align=center> .
 
@@ -28,7 +31,6 @@
 <p align=center> .
 
 *<p align=center>* Please stop eating my fruit if I have any in general. /lh
-
 ---
 
 
@@ -48,7 +50,6 @@
 ---
 
 
-### *<p align=center>* Please visit any of the sites listed to learn more about me. New strawpage will be available when it's done.
 
->[!NOTE]
-*(By the way, my pages have been created with my default zoom set to 80%, so things may be bigger for you than they are for me! Sorry, and thanks for understanding!)*
+
+
