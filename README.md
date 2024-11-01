@@ -2,19 +2,19 @@
 
 ## *<p align=center>* [DO YOUR DAILY CLICKS](https://arab.org/click-to-help/palestine/)
 
-## *<p align=center>* [Sign my strawpage, made specifically for being a guestbook/doodlebook!](https://chrispybeans.straw.page/) I'll add interests and stuff to it soon so you can draw smth from said interest lol. idk shrugs
-### *<p align=center>* Whoever drew that damselfly (assuming it was someone here on pt and not from explore) ily. 
+### *<p align=center>* [Sign my strawpage, made specifically for being a guestbook/doodlebook!](https://chrispybeans.straw.page/) I'll add interests and stuff to it soon so you can draw smth from said interest lol. idk shrugs
+#### *<p align=center>* Whoever drew that damselfly (assuming it was someone here on pt and not from explore) ily. 
 
-## *<p align=center>* [Also go sign my atabook please for the love of god. /silly](https://glass-animals.atabook.org/)
+### *<p align=center>* [Also go sign my atabook please for the love of god. /silly](https://glass-animals.atabook.org/)
 
 ---
 >[!NOTE]
 *(By the way, my pages have been created with my default zoom set to 80%, so things may be bigger for you than they are for me! Sorry, and thanks for understanding!)*
 
-## *<p align=center>* [New rentry! (Still a wip. Visit old rentry for interests and dni!)](https://rentry.co/Chrissy-beans)
+### *<p align=center>* [New rentry! (Still a wip. Visit old rentry for interests and dni!)](https://rentry.co/Chrissy-beans)
 
-## *<p align=center>* [Status and nametag meanings](https://rentry.co/1-800-SPAMTONG)
-### *<p align=center>* Please visit any of the sites listed to learn more about me. New strawpage will be available when it's done.
+### *<p align=center>* [Status and nametag meanings](https://rentry.co/1-800-SPAMTONG)
+#### *<p align=center>* Please visit any of the sites listed to learn more about me. New strawpage will be available when it's done.
 
 <p align=center> .
 
@@ -39,10 +39,5 @@
 
 *<p align=center>* I will block any proship/profic on sight! I will not insult you or tell you to die, but I *do **not*** want to interact with you. Also spitting on me will earn you an immediate, very unkind fuck off and a permanent block if you are a stranger. For the rest of my DNI, please visit my full dni on either of my sites listed.
 
-### *<p align=center>* **<ins>If you accuse people of faking DID/OSDD just by virtue of being on here, don't talk to me. We will not get along, I already do not like you.</ins>**
-
 ### *<p align=center>* *I am a singlet frequently surrounded by systems! I am very protective of them. If you hate systems, or try to start shit with my friends, I **<ins>will</ins>** eat you.*
-
-### *<p align=center>* If you partake in or make references to r/systemscringe do not interact for the love of god you people make me so uncomfortable. 
-
 ---
