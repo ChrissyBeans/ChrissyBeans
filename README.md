@@ -1,4 +1,4 @@
-*<p align=center>* ![lematworkses](https://github.com/user-attachments/assets/0b3d7d33-1184-47b6-bfed-b01fef71e8e0)
+*<p align=center>* ![Video description: A gif, featuring a black background with many small, colorful neon stars. The stars are not full shapes, only outlines. They all drift slowly downwards, at a 45 degree angle. They pop into sight and fade out. They all spin, either quickly or slowly, while changing color over the course of their time in view. They are of varying sizes, some bigger while others are much smaller. There is a sort of depth to the gif, as there appear to be multiple layers, with some sorts being farther away from the camera. End VD.](https://github.com/user-attachments/assets/0b3d7d33-1184-47b6-bfed-b01fef71e8e0)
 
 ---
 
@@ -49,4 +49,4 @@
 
 ### *<p align=center>* *I am a singlet frequently surrounded by systems! I am very protective of them. If you hate systems, or try to start shit with my friends, I **<ins>will</ins>** eat you.*
 ---
-*<p align=center>* ![Neonstar-lematworks-TumblrHeader - Copy - Copy - Copy(2)](https://github.com/user-attachments/assets/ccebceb9-7cbc-44e5-9a6d-254b0ab97b29)
+*<p align=center>* ![Video description: A gif, featuring a black background with many small, colorful neon stars. The stars are not full shapes, only outlines. They all drift slowly downwards, at a 45 degree angle. They pop into sight and fade out. They all spin, either quickly or slowly, while changing color over the course of their time in view. They are of varying sizes, some bigger while others are much smaller. There is a sort of depth to the gif, as there appear to be multiple layers, with some sorts being farther away from the camera. End VD.](https://github.com/user-attachments/assets/ccebceb9-7cbc-44e5-9a6d-254b0ab97b29)
