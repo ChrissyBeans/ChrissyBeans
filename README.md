@@ -4,7 +4,6 @@
 
 
 
-*<p align=center>* ![ID: An image of one of Glass Animals' album covers. The colors featured are all bright. The background is a Cyan color, with the main focus being a pair of cherries. The cherries have a two leaves at the end of their stems; the leaf on the right is larger than the other. There's a white star shaped shine on the upper edge of the left cherry, and a shine at the bottom edge of the right one. The cherries, including their stems and leaves, have a very faint white "glow" around them, fading into the background. Above the cherries, in white with sky blue shadows, is Glass Animals written in a large italic cursive. In the same style of text, I Don't Wanna Talk is written underneath them, with each word having a capital letter at the beginning. Above the word talk is a small, askew "sticker" in the shape of a heart, which is red with a white outline. This heart has the words fresh fruit written in it, both written in white, but the word fruit is below the word fresh, in a smaller font, and written in cursive. There's a downward facing arrow at the bottom of the heart, also in white. Below "I don't wanna talk", in white, is the phrase "I just wanna dance" with parentheses on both sides of the phrase. Unlike the text of the band name or the first half of the song name, this isn't written in italics, or cursive. With a very small pixel clearance from the very edge of the image, surrounding the whole image is a thin white outline. End ID.](https://imgur.com/7j2nfmF.png)
 
 ## *<p align=center>* [DO YOUR DAILY CLICKS](https://arab.org/click-to-help/palestine/)
 
@@ -35,6 +34,8 @@
 <p align=center> Even if we never talk ily green names /p
 
 *<p align=center>* Please stop eating my fruit if I have any in general. /lh
+
+*<p align=center>* ![ID: An image of one of Glass Animals' album covers. The colors featured are all bright. The background is a Cyan color, with the main focus being a pair of cherries. The cherries have a two leaves at the end of their stems; the leaf on the right is larger than the other. There's a white star shaped shine on the upper edge of the left cherry, and a shine at the bottom edge of the right one. The cherries, including their stems and leaves, have a very faint white "glow" around them, fading into the background. Above the cherries, in white with sky blue shadows, is Glass Animals written in a large italic cursive. In the same style of text, I Don't Wanna Talk is written underneath them, with each word having a capital letter at the beginning. Above the word talk is a small, askew "sticker" in the shape of a heart, which is red with a white outline. This heart has the words fresh fruit written in it, both written in white, but the word fruit is below the word fresh, in a smaller font, and written in cursive. There's a downward facing arrow at the bottom of the heart, also in white. Below "I don't wanna talk", in white, is the phrase "I just wanna dance" with parentheses on both sides of the phrase. Unlike the text of the band name or the first half of the song name, this isn't written in italics, or cursive. With a very small pixel clearance from the very edge of the image, surrounding the whole image is a thin white outline. End ID.](https://imgur.com/7j2nfmF.png)
 
 ---
 
