@@ -1,6 +1,6 @@
 *<p align=center>* ![lematworkses](https://github.com/user-attachments/assets/0b3d7d33-1184-47b6-bfed-b01fef71e8e0)
 
-*<p align=center>* ![Neonstar-lematworks-TumblrHeader - Copy - Copy - Copy(2)](https://github.com/user-attachments/assets/ccebceb9-7cbc-44e5-9a6d-254b0ab97b29)
+
 
 
 
@@ -47,3 +47,4 @@
 
 ### *<p align=center>* *I am a singlet frequently surrounded by systems! I am very protective of them. If you hate systems, or try to start shit with my friends, I **<ins>will</ins>** eat you.*
 ---
+*<p align=center>* ![Neonstar-lematworks-TumblrHeader - Copy - Copy - Copy(2)](https://github.com/user-attachments/assets/ccebceb9-7cbc-44e5-9a6d-254b0ab97b29)
