@@ -9,7 +9,7 @@
 
 ## *<p align=center>* [DO YOUR DAILY CLICKS](https://arab.org/click-to-help/palestine/)
 
-## *<p align=center>* [Sign my strawpage, made specifically for being a guestbook/doodlebook!](https://chrispybeans.straw.page/) I'll add interests and stuff to it soon so you can draw smth from said interest lol. idk shrugs
+## *<p align=center>* [Sign my strawpage, made specifically for being a guestbook/doodlebook!](https://chrispybeans.straw.page/) Gallery is hidden for the time being until I rework it!!
 ### *<p align=center>* Whoever drew that damselfly (assuming it was someone here on pt and not from explore) ily. 
 
 ## *<p align=center>* [Also go sign my atabook please for the love of god. /silly](https://glass-animals.atabook.org/)
