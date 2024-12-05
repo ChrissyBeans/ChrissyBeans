@@ -14,7 +14,7 @@
 
 ## *<p align=center>* [Also go sign my atabook please for the love of god. /silly](https://glass-animals.atabook.org/)
 
-## *<p align=center>* [Go sign my tree!](https://colormytree.me/2024/01JE8N352E1KHVX5DGTQVDVG97)
+## *<p align=center>* [Go decorate my tree!](https://colormytree.me/2024/01JE8N352E1KHVX5DGTQVDVG97)
 
 ---
 
