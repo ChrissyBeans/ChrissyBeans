@@ -18,7 +18,7 @@
 
 ---
 
-### *<p align=center>* [New rentry! (A good chunk is completed, but this is still a wip. Visit old rentry for dni!)](https://rentry.co/Chrissy-beans)
+### *<p align=center>* [New rentry! (A majority is completed, but this is still a wip. Visit old rentry for dni!)](https://rentry.co/Chrissy-beans)
 
 ### *<p align=center>* [Status and nametag meanings](https://rentry.co/1-800-SPAMTONG)
 #### *<p align=center>* Please visit any of the sites listed to learn more about me. New strawpage will be available when it's done.
