@@ -15,6 +15,8 @@
 
 ---
 
+---
+
 ### *<p align=center>* [New rentry! (A majority is completed, but this is still a wip. Visit old rentry for dni!)](https://rentry.co/Chrissy-beans)
 
 ### *<p align=center>* [Status and nametag meanings](https://rentry.co/1-800-SPAMTONG)
