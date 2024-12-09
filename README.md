@@ -16,8 +16,6 @@
 
 ---
 
-[↑ Please listen to this! ↑](https://www.youtube.com/watch?v=9nrEaHinGmY)
-
 ---
 
 ### *<p align=center>* [New rentry! (A majority is completed, but this is still a wip. Visit old rentry for dni!)](https://rentry.co/Chrissy-beans)
