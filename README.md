@@ -8,14 +8,10 @@
 
 ---
 
----
-
 ### *<p align=center>* [DO YOUR DAILY CLICKS](https://arab.org/click-to-help/palestine/)
 ### *<p align=center>* Please, sign my...
 ### *<p align=center>* [Strawpage](https://chrispybeans.straw.page/) || [Atabook](https://glass-animals.atabook.org/) || [Go color my tree!](https://colormytree.me/2024/01JE8N352E1KHVX5DGTQVDVG97)
 ### *<p align=center>* Strawpage gallery is hidden for the time being until I rework it!! Whoever drew that damselfly (assuming it was someone here on pt and not from explore) ily. 
-
----
 
 ---
 
