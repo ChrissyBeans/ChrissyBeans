@@ -2,7 +2,7 @@
 
 ---
 
-[↓ alt text here sorry :( ↓](https://rentry.co/idontwannatalkimagedescription)
+#### [↓ alt text here sorry :( ↓](https://rentry.co/idontwannatalkimagedescription)
 
 <img align="left" width="300" height="300" src="https://imgur.com/7j2nfmF.png">
 
@@ -17,7 +17,7 @@
 
 ---
 
-[↑ Please listen to this! ↑](https://www.youtube.com/watch?v=9nrEaHinGmY)
+#### [↑ Please listen to this! ↑](https://www.youtube.com/watch?v=9nrEaHinGmY)
 
 <p align=center> .
 
