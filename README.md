@@ -21,7 +21,7 @@
 
 ---
 
-### <p align=center> By the way be aware that the tree sign thing is like a special guestbook! It can only be opened on christmas, so be nice! Not to say that anyone who signed already isn't being nice, anyone who signed already I'm kissing you on the head platonically
+### <p align=center> By the way be aware that the tree sign thing is a special guestbook! It can only be opened on christmas, so be nice! Not to say that anyone who signed already isn't being nice, anyone who signed already I'm kissing you on the head platonically
 
 <p align=center> .
 
