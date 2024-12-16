@@ -21,8 +21,6 @@
 
 ---
 
-### <p align=center> By the way be aware that the tree sign thing is a special guestbook! It can only be opened on christmas, so be nice! Not to say that anyone who signed already isn't being nice, anyone who signed already I'm kissing you on the head platonically
-
 <p align=center> .
 
 ### *<p align=center>* [New rentry! (A majority is completed, but this is still a wip. Visit old rentry for dni!)](https://rentry.co/Chrissy-beans)
