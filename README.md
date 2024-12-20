@@ -36,11 +36,21 @@
 
 #### <p align=center> PLEASE FOR THE LOVE OF GOD IF YOU RECOGNIZE MY SYSTEM SHOCK AVATARS INT !!!!!! I LOVE THAT BIG MEAN AI LADY SO MUCH I'M BEGGING ON MY HANDS AND KNEES
 
+<p align=center> .
+
 <p align=center> I'm friendly!! I'm just awkward/shy. If you approach me kindly I will return it! And if you're friends with the people I sit with, you can C+H with me, even if I don't know you! (That being said, please don't cover me if you're not friended!) All green names are welcome to sit with me !
+  
+<p align=center> Even if we never talk ily green names /p
+
+<p align=center> .
+
+*<p align=center>* I'm really not mean at all, *except* when it comes to my friends. If you disrespect my friends right in my face **\(*especially* those in the love letters tab like Mary and Wesker)**, I can and probably will get pretty mean and it will likely land in me hard blocking you. I may not be my friends but disrespect to them is disrespect to me and I do ***<ins>not</ins>*** take it kindly. Consider yourself warned.
+
+<p align=center> .
 
 <p align=center> by the way even if I have fandom IWC on my avatar, fellow enjoyers of the media can int! I'm just wary cuz I know there are can be weirdos or whatnot in fandoms like Sprunki +etc.
 
-<p align=center> Even if we never talk ily green names /p
+<p align=center> .
 
 *<p align=center>* Please stop eating my fruit if I have any in general. /lh
 
