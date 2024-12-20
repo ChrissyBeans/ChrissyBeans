@@ -44,7 +44,7 @@
 
 <p align=center> .
 
-*<p align=center>* I'm really not mean at all, *except* when it comes to my friends. If you disrespect my friends right in my face **\(*especially* those in the love letters tab like Mary and Wesker)**, I can and probably will get pretty mean and it will likely land in me hard blocking you. I may not be my friends but disrespect to them is disrespect to me and I do ***<ins>not</ins>*** take it kindly. Consider yourself warned.
+*<p align=center>* I'm really not mean at all, *except* when it comes to my friends. If you disrespect my friends right in my face **\(*especially* those in the love letters tab like Mary and Wesker)**, I can and probably will get pretty mean, especially if you directly insult them and/or spit at them repeatedly, and it will likely land in me hard blocking you. I may not be my friends but disrespect to them is disrespect to me and I do ***<ins>not</ins>*** take it kindly. Consider yourself warned.
 
 <p align=center> .
 
