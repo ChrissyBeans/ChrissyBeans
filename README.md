@@ -55,7 +55,7 @@
 *<p align=center>* I will block any proship/profic on sight! I will not insult you or tell you to die, but I *do **not*** want to interact with you. Also spitting on me or my friends will earn you an immediate, very unkind fuck off and a permanent block if you are a stranger. For the rest of my DNI, please visit my full dni on either of my sites listed.
 
 ### *<p align=center>* *I am a singlet frequently surrounded by systems! I am very protective of them. If you hate systems, or try to start shit with my friends, I **<ins>will</ins>** eat you.*
-### *<p align=center>* *Btw I'm including putting systems in your dni, especially if you're a singlet. idgaf about your reasoning. I too am forgetful. No this is not directed at systems, <ins>unless</ins> your reasoning for not wanting other systems to interact has the implication/direct statement that other systems on here are fake. I'll block you if I spot you.*
+### *<p align=center>* *Btw I'm including putting systems in your dni, especially if you're a singlet. idgaf about your reasoning. I too am forgetful. No this is not directed at systems, <ins>unless</ins> your reasoning for not wanting other systems to interact has the implication/direct statement that other systems on here are fake. I'll block you if I spot you. I also can't believe I have to say this but if I see you saying you'll hide every sys pony you see I'm hiding you.*
 
 ### *<p align=center>* *I actually sincerely cannot believe I have to say this but don't act like you are the deciding force and can simply Tell who does and doesn't have certain illnesses. Stop fakeclaiming others online or I'm gonna beat you over the head with rocks.*
 ---
