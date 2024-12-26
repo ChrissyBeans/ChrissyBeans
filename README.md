@@ -57,7 +57,7 @@
 
 ---
 
-#### <p align=center> I hide freely! Especially since way too many of you people are far too comfortable being weird or mean to others \(especially systems if I'm being honest... looking at you mw people). normal person beam 💥
+#### <p align=center> I hide freely! Especially since way too many of you people are far too comfortable being weird or mean to others \(especially towards systems if I'm being honest... looking at you mw people). normal person beam 💥
 
 
 *<p align=center>* **__Do not try to friend me if we didn't talk beforehand, I will not accept it.__**
