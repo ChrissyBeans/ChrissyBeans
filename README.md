@@ -12,7 +12,7 @@
 
 ---
 ### *<p align=center>* Please, sign my...
-### *<p align=center>* [Strawpage](https://chrispybeans.straw.page/) || [Atabook](https://glass-animals.atabook.org/) || [Go color my tree!](https://colormytree.me/2024/01JE8N352E1KHVX5DGTQVDVG97) Be nice, I can read them! Anyone who signed already ily. also which one of you signed that I'm ur pee brotha . whatttt /amused
+### *<p align=center>* [Strawpage](https://chrispybeans.straw.page/) || [Atabook](https://glass-animals.atabook.org/)
 ### *<p align=center>* Strawpage gallery is hidden for the time being until I rework it!! Whoever drew that damselfly (assuming it was someone here on pt and not from explore) ily.
 #### <p align=center> Whispers are back but just please don't ask me for supporter. Anyone who whispers me to compliment me ily /p
 
