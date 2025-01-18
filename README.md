@@ -65,7 +65,7 @@
 
 *<p align=center>* The most basic DNI I have is basic [DNI](https://dni-criteria.carrd.co/) criteria. If I'm on the safe server, minors limit interaction unless friends/we share a party.<sup> **I will be friendly if you compliment me but I am not really looking to make friends with y'all. I am an adult!**</sup> 
 
-*<p align=center>* I will block any proship/profic on sight! I will not insult you or tell you to die, but I *do **not*** want to interact with you. Btw I should make note: I'm not a discourser. I will not discourse with you. I do not like proship/profic, end of. Any attempts to debate me will lead to me blocking you, pro, anti, or not.
+*<p align=center>* I will block any proship/profic on sight! I will not insult you or tell you to die, but I *do **not*** want to interact with you. Btw I should make note: I'm not a discourser. I will not discourse with you. I do not like proship/profic, end of. Any attempts to debate me will lead to me blocking you.
 <p align=center> Also spitting on me or my friends will earn you an immediate, very unkind fuck off and a permanent block if you are a stranger. For the rest of my DNI, please visit my full dni on either of my sites listed.
 
 ### *<p align=center>* *I am a singlet frequently surrounded by systems! I am very protective of them. If you hate systems, automatically assume they're fake if they're on here, or try to start shit with my friends, I **<ins>will</ins>** eat you.*
