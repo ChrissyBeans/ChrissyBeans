@@ -24,7 +24,7 @@
 
 <p align=center> .
 
-### *<p align=center>* [New rentry! (A majority is completed, but this is still a wip. Visit old rentry for dni!)](https://rentry.co/Chrissy-beans)
+### *<p align=center>* [New rentry! (A majority is completed, but this is still a wip. Visit old rentry for dni!)](https://rentry.co/Chrissy-beans) I block freely, so it's rarely ever personal. It could be for stuff like me not liking your vibe, me not liking something you said, etc. I'm free to curate my experience, so uhhh... sorry if that makes you mad ig.
 
 ### *<p align=center>* [Status and nametag meanings](https://rentry.co/1-800-SPAMTONG)
 #### *<p align=center>* Please visit any of the sites listed to learn more about me. New strawpage will be available when it's done.
