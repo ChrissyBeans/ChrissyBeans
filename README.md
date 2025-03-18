@@ -12,8 +12,8 @@
 
 ---
 ### *<p align=center>* Please, sign my...
-### *<p align=center>* [Strawpage](https://chrispybeans.straw.page/) || [Atabook](https://glass-animals.atabook.org/)
-### *<p align=center>* Whoever drew that damselfly (assuming it was someone here on pt and not from explore) ily.
+### *<p align=center>* ~~~~Strawpage~~~~ || [Atabook](https://glass-animals.atabook.org/)
+### *<p align=center>* Whoever drew that damselfly (assuming it was someone here on pt and not from explore) ily. Strawpage link gone until fully reworked gallery is open
 ### *<p align=center>* Sorry, but whispers are no longer public because people couldn't stop asking me for supporter. Anyone who whispered me to compliment me ily /p
 
 ---
