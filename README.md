@@ -24,7 +24,7 @@
 
 <p align=center> .
 
-### *<p align=center>* [New rentry! (A majority is completed, but this is still a wip. Visit old rentry for dni!)](https://rentry.co/Chrissy-beans) I block freely, so it's rarely ever personal. It could be for stuff like me not liking your vibe, me not liking something you said, etc. I'm free to curate my experience, so uhhh... sorry if that makes you mad ig. 
+### *<p align=center>* [New rentry! (A majority is completed, but this is still a wip. Visit old rentry for dni!)](https://rentry.co/Chrissy-beans) I block freely, so it's rarely ever personal. It could be for stuff like me not liking your vibe, me not liking something you said, etc. I'm free to curate my experience, so uhhh... sorry if that makes you mad ig. Also I'm a self/yumeshipper and if you dislike that then like, kindly go away.
 <p align=center> Also I could understand blocking me if I deliberately moved to sit on you but if I was already sat there by the time you spawned in then sit somewhere else instead of blocking me for Taking Your Spot idk what to tell you man. Like I'm all for curating spaces but idk that just seems kinda lame. ultimately who gaf though, oh well.
   
 *<p align=center>*  <sup> if I take your spot, sorry. I promise I'm not deliberately ignoring you when you try to get my attention, I'm chronically offtab so more likely than not I'm just not looking at the tab. </sup>
