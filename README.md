@@ -14,7 +14,7 @@
 ### *<p align=center>* Please, sign my...
 ### *<p align=center>* ~~Strawpage~~ || [Atabook](https://glass-animals.atabook.org/)
 ### *<p align=center>* Strawpage link gone until fully reworked gallery is open
-### *<p align=center>* Sorry, but whispers are no longer public because people couldn't stop asking me for supporter. When I do make whispers public, strangers please stop asking me for supporter for god's sake, it's annoying. Anyone who whispered me to compliment me ily /p
+### *<p align=center>* Strangers please stop asking me for supporter for god's sake, it's annoying. Anyone who whispers me to compliment me ily /p
 
 ---
 
