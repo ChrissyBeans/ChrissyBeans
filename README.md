@@ -13,7 +13,7 @@
 ---
 ### *<p align=center>* Please, sign my...
 ### *<p align=center>* ~~Strawpage~~ || [Atabook](https://glass-animals.atabook.org/)
-### *<p align=center>* Strawpage link gone until gimmicks are back
+### *<p align=center>* Strawpage link gone for now
 ### *<p align=center>* Strangers please stop asking me for supporter for god's sake, it's annoying. Anyone who whispers me to compliment me ily /p
 
 ---
