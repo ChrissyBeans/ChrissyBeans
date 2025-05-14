@@ -1,4 +1,4 @@
-*<p align=center>* ![Video description: A gif, featuring a black background with many small, colorful neon stars. The stars are not full shapes, only outlines. They all drift slowly downwards, at a 45 degree angle. They pop into sight and fade out. They all spin, either quickly or slowly, while changing color over the course of their time in view. They are of varying sizes, some bigger while others are much smaller. There is a sort of depth to the gif, as there appear to be multiple layers, with some sorts being farther away from the camera. End VD.](https://github.com/user-attachments/assets/0b3d7d33-1184-47b6-bfed-b01fef71e8e0)
+*<p align=center>* ![Gif description: A gif, featuring a black background with many small, colorful neon stars. The stars are not full shapes, only outlines. They all drift slowly downwards, at a 45 degree angle. They pop into sight and fade out. They all spin, either quickly or slowly, while changing color over the course of their time in view. They are of varying sizes, some bigger while others are much smaller. There is a sort of depth to the gif, as there appear to be multiple layers, with some sorts being farther away from the camera. End VD.](https://github.com/user-attachments/assets/0b3d7d33-1184-47b6-bfed-b01fef71e8e0)
 
 ---
 
@@ -24,22 +24,18 @@
 
 <p align=center> .
 
-### *<p align=center>* [New rentry! (A majority is completed, but this is still a wip. Visit old rentry for dni!)](https://rentry.co/Chrissy-beans) I block freely, so it's rarely ever personal. It could be for stuff like me not liking your vibe, me not liking something you said, etc. I'm free to curate my experience, so uhhh... sorry if that makes you mad ig. Also I'm a self/yumeshipper and if you dislike that then like, kindly go away.
-<p align=center> Also I could understand blocking me if I deliberately moved to sit on you but if I was already sat there by the time you spawned in then sit somewhere else instead of blocking me for Taking Your Spot idk what to tell you man. Like I'm all for curating spaces but idk that just seems kinda lame. ultimately who gaf though, oh well.
-  
+### *<p align=center>* [New rentry! (A majority is completed, but this is still a wip. Visit old rentry for dni!)](https://rentry.co/Chrissy-beans) || [Old DNI!](https://rentry.co/chrissys-dni) 
+<p align=center> I block freely, so it's rarely ever personal. It could be for stuff like me not liking your vibe, me not liking something you said, etc. I'm free to curate my experience, so uhhh... sorry if that makes you mad ig. Also I'm a self/yumeshipper and if you dislike that then like, kindly go away. Also I could understand blocking me if I deliberately moved to sit on you but if I was already sat there by the time you spawned in then sit somewhere else instead of blocking me for Taking Your Spot idk what to tell you man. Like I'm all for curating spaces but idk that just seems kinda lame. ultimately who gaf though, oh well.
 *<p align=center>*  <sup> if I take your spot, sorry. I promise I'm not deliberately ignoring you when you try to get my attention, I'm chronically offtab so more likely than not I'm just not looking at the tab. </sup>
 
   
 ### *<p align=center>* [Status and nametag meanings](https://rentry.co/1-800-SPAMTONG)
-#### *<p align=center>* Please visit any of the sites listed to learn more about me. New strawpage will be available when it's done.
+#### *<p align=center>* I use statuses differently than the everyday PTer, which is why I have this here. BTW I am a chronic offtabber and idler, keep that in mind.
 
 ---
 
-#### *<p align=center>* I genuinely cannot believe this needs explaining but for the love of god don't make it weird if me and my friends are sitting together. Not everything needs to have a romantic connotation or reasoning you freak. /dir
-
-<p align=center> .
-
-#### <p align=center> PLEASE FOR THE LOVE OF GOD IF YOU RECOGNIZE MY SYSTEM SHOCK AVATARS INT !!!!!! I LOVE THAT BIG MEAN AI LADY SO MUCH I'M BEGGING ON MY HANDS AND KNEES
+#### *<p align=center>* I genuinely cannot believe this needs explaining but for the love of god don't make it weird if me and my friends are sitting together. Not everything needs to have a romantic connotation or reasoning you freak /dir. This also includes being weird to me if I'm sitting with an introject whose source happens to be my f/o. If you get weird about it I will immediately block you.
+##### *<p align=center>* Also by the way, if you get mean with my system friends for their sources I can assure you I will immediately become hostile. They're not the same person as source, so you better know how to use your damn brain.
 
 <p align=center> .
 
@@ -59,15 +55,7 @@
 
 *<p align=center>* Please stop eating my fruit if I have any in general. /lh
 
-
 ---
-
-#### <p align=center> I hide freely! Especially since way too many of you people are far too comfortable being weird or mean to others \(especially towards systems if I'm being honest... looking at you mw people). normal person beam 💥💥💥💥💥💥💥💥 <--- also imagine ME being normal compared to you. Like actually. I'm weird at times but you mfs are a whole other level sometimes oh my god
-
-
-*<p align=center>* **__Do not try to friend me if we didn't talk beforehand, I will not accept it.__**
-
-*<p align=center>* The most basic DNI I have is basic [DNI](https://dni-criteria.carrd.co/) criteria. If I'm on the safe server, minors limit interaction unless friends/we share a party.<sup> **I will be friendly if you compliment me but I am not really looking to make friends with y'all. I am an adult!**</sup> 
 
 *<p align=center>* I will block any proship/profic on sight! I will not insult you or tell you to die, but I *do **not*** want to interact with you. Btw I should make note: I'm not a discourser. I will not discourse with you. I do not like proship/profic, end of. Any attempts to debate me will lead to me blocking you.
 <p align=center> Also spitting on me or my friends will earn you an immediate, very unkind fuck off and a permanent block if you are a stranger. For the rest of my DNI, please visit my full dni on either of my sites listed.
