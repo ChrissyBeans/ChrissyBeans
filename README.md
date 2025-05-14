@@ -37,6 +37,10 @@
 #### *<p align=center>* I genuinely cannot believe this needs explaining but for the love of god don't make it weird if me and my friends are sitting together. Not everything needs to have a romantic connotation or reasoning you freak /dir. This also includes being weird to me if I'm sitting with an introject whose source happens to be my f/o. If you get weird about it I will immediately block you.
 ##### *<p align=center>* Also by the way, if you get mean with my system friends for their sources I can assure you I will immediately become hostile. They're not the same person as source, so you better know how to use your damn brain.
 
+---
+
+## *<p align=center>* Extra yapping below here!
+
 <p align=center> .
 
 <p align=center> I'm friendly!! I'm just awkward/shy. If you approach me kindly I will return it! And if you're friends with the people I sit with, you can C+H with me, even if I don't know you! (That being said, please don't cover me if you're not friended!) All green names are welcome to sit with me !
