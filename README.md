@@ -39,7 +39,7 @@
 
 ---
 
-## *<p align=center>* Extra yapping below here!
+## *<p align=center>* Extra yapping below here! This will all be removed at some point, when I finish my sites.
 
 <p align=center> .
 
