@@ -12,7 +12,7 @@
 
 ---
 ### *<p align=center>* Please, sign my...
-### *<p align=center>* ~~Strawpage~~ || [Atabook](https://glass-animals.atabook.org/) || [Neospring](https://neospring.org/@chrissybeans)
+### *<p align=center>* [Strawpage](https://chrispybeans.straw.page/) || [Atabook](https://glass-animals.atabook.org/) || [Neospring](https://neospring.org/@chrissybeans)
 #### *<p align=center>* I'm gonna start throwing rocks if strangers keep asking me for supporter. I'm sorry but it's annoying because it happens on a semifrequent basis. The answer is no. Anyone who whispers me to compliment me though, ily /p. Also if I'm unresponsive when whispered I'm probably asleep!
 #### *<p align=center>* Days since I got asked for supporter: 0
 
