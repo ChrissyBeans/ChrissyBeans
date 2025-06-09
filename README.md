@@ -1,7 +1,5 @@
 *<p align=center>* ![Gif description: A gif, featuring a black background with many small, colorful neon stars. The stars are not full shapes, only outlines. They all drift slowly downwards, at a 45 degree angle. They pop into sight and fade out. They all spin, either quickly or slowly, while changing color over the course of their time in view. They are of varying sizes, some bigger while others are much smaller. There is a sort of depth to the gif, as there appear to be multiple layers, with some sorts being farther away from the camera. End VD.](https://github.com/user-attachments/assets/0b3d7d33-1184-47b6-bfed-b01fef71e8e0)
 
-TEST ![](https://file.garden/Z44hb3j5okOfzaT7/z6971venlho91.gif)
-
 ---
 
 #### [↓ alt text here sorry :( ↓](https://rentry.co/idontwannatalkimagedescription)
