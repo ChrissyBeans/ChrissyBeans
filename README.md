@@ -12,7 +12,7 @@
 
 ---
 ### *<p align=center>* Please, sign my...
-### *<p align=center>* [Strawpage](https://chrispybeans.straw.page/) || [Atabook](https://glass-animals.atabook.org/) || [Neospring](https://neospring.org/@chrissybeans)
+### *<p align=center>* [Strawpage](https://chrispybeans.straw.page/) || [Atabook](https://glass-animals.atabook.org/)
 ### *<p align=center>* STOP FUCKING ASKING ME FOR MY SUPPORTER IF YOU'RE A STRANGER.
 #### *<p align=center>* I'm sorry but it's annoying because it happens on a frequent basis. *The answer is no*. 
 #### *<p align=center>* Anyone who whispers me to compliment me though, ily /p. Also if I'm unresponsive when whispered I'm probably asleep!
