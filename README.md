@@ -43,7 +43,7 @@
 
 ---
 
-#### *<p align=center>* I genuinely cannot believe this needs explaining but for the love of god don't make it weird if me and my friends are sitting together. Not everything needs to have a romantic connotation or reasoning you freak /dir. This also includes being weird to me if I'm sitting with an introject or fictionkin whose source happens to be my f/o. If you get weird about it I will immediately block you.
+#### *<p align=center>* I genuinely cannot believe this needs explaining but for the love of god don't make it weird if me and my friends are sitting together. Not everything needs to have a romantic connotation or reasoning you freak /dir. This also includes being weird to me/my friend if I'm sitting with an introject or fictionkin whose source happens to be my f/o. If you get weird about it I will immediately block you.
 ### *<p align=center>* Also by the way, if you get mean with my system friends for their sources I can assure you I will immediately become hostile. (Ex: bullying my friend Jim for source). They're not the same person as source, so you better know how to use your damn brain because I will fucking bite you.
 
 ---
