@@ -35,7 +35,7 @@
   
 *<p align=center>* Also I could understand blocking me if I deliberately moved to sit on you but if I was already sat there by the time you spawned in then move your ass and sit somewhere else instead of blocking me or staying on top of me for Taking Your Spot idk what to tell you man. The next person who remains on top of me or even *moves* to sit on me after seeing me already sitting where they want to sit is getting rocks thrown at their head.
 
-*<p align=center>*  <sup> if I take your spot, sorry. I promise I'm not deliberately ignoring you when you try to get my attention, I'm chronically offtab so more likely than not I'm just not looking at the tab. </sup>
+*<p align=center>*  <sup> if I take your spot, sorry. I promise I'm not deliberately ignoring you when you try to get my attention, I'm chronically offtab so more likely than not I'm just not looking at the tab. ALSO if you get mean with me for sitting someplace you wanted to sit then you can kiss your chance of me moving for you goodbye. I won't move an inch for you if the first thing out of your mouth is something rude. </sup>
 
   
 ### *<p align=center>* [Status and nametag meanings](https://rentry.co/1-800-SPAMTONG)
