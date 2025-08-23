@@ -13,7 +13,7 @@
 ---
 ### *<p align=center>* Please, sign my...
 ### *<p align=center>* [Strawpage](https://chrispybeans.straw.page/) || [Atabook](https://glass-animals.atabook.org/)
-*<p align=center>* I hide a lot of people and I do it very freely, I wouldn't take it personally! It's rarely *ever* personal.
+*<p align=center>* I hide a lot of people and I do it very freely, I wouldn't take it personally! It's rarely **ever** personal.
 
 ### *<p align=center>* STOP FUCKING ASKING ME FOR MY SUPPORTER IF YOU'RE A STRANGER.
 #### *<p align=center>* I'm sorry but it's annoying because it happens on a frequent basis. *The answer is no*. 
