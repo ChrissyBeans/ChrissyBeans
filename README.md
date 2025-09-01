@@ -14,6 +14,7 @@
 ### *<p align=center>* Please, sign my...
 ### *<p align=center>* [Strawpage](https://chrispybeans.straw.page/) || [Atabook](https://glassanimals.atabook.org/)
 <p align=center> Please no ship interactions for the love of god
+  
 *<p align=center>* I hide a lot of people and I do it very freely, I wouldn't take it personally! It's rarely **ever** personal. And to add, if I'm sitting on someone who isn't Wesker or Mary I'm likely completely unaware! Whisper me if you're not sure, I don't bite.
 
 ### *<p align=center>* STOP FUCKING ASKING ME FOR MY SUPPORTER IF YOU'RE A STRANGER.
