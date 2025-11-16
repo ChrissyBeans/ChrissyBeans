@@ -37,9 +37,7 @@
   
 <p align=center> I block freely, so it's rarely ever personal. It could be for stuff like me not liking your vibe, me not liking something you said, etc. I'm free to curate my experience, so uhhh... sorry if that makes you mad ig. Also I'm a self/yumeshipper and if you dislike that then like, kindly go away. 
   
-*<p align=center>* Also I could understand blocking me if I deliberately moved to sit on you but if I was already sat there by the time you spawned in then move your ass and sit somewhere else instead of blocking me or staying on top of me for Taking Your Spot idk what to tell you man. The next person who remains on top of me or even *moves* to sit on me after seeing me already sitting where they want to sit is getting rocks thrown at their head.
-
-*<p align=center>*  <sup> if I take your spot, sorry. I promise I'm not deliberately ignoring you when you try to get my attention, I'm chronically offtab so more likely than not I'm just not looking at the tab. ALSO if you get mean with me for sitting someplace you wanted to sit then you can kiss your chance of me moving for you goodbye. I won't move an inch for you if the first thing out of your mouth is something rude. </sup>
+*<p align=center>* Sorry, but top right spawn wall is where I sit all the time. I won't move for you when I next spawn in. I'll only go anywhere for my friends.
 
   
 ### *<p align=center>* [Status and nametag meanings](https://rentry.co/1-800-SPAMTONG)
