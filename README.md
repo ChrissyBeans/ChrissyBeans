@@ -13,16 +13,9 @@
 ---
 ### *<p align=center>* Please, sign my...
 ### *<p align=center>* [Strawpage](https://chrispybeans.straw.page/) || [Atabook](https://glassanimals.atabook.org/)
-<p align=center> Please no ship interactions for the love of god
-  
-*<p align=center>* I hide a lot of people and I do it very freely, I wouldn't take it personally! It's rarely **ever** personal. And to add, if I'm sitting completely on top of someone I'm likely completely unaware! Whisper me if you're not sure, I don't bite.
 
-### *<p align=center>* If you draw me Spamton I love you /p
-#### *<p align=center>* Stop asking for my Supp if you're a stranger. I'm sorry but it's annoying because it happens on a frequent basis. *The answer is no*. 
-#### *<p align=center>* Anyone who whispers me to compliment me though, ily /p. Also if I'm unresponsive when whispered I'm probably asleep!
+#### *<p align=center>* Anyone who whispers me to compliment me, ily /p. Also if I'm unresponsive when whispered I'm probably asleep!
 #### *<p align=center>* Days since I got asked for supporter: 0
-
-#### *<p align=center>* NO FUCKING SPOILERS FOR DELTARUNE I WILL KILL YOU WITH ROCKS. However, I do have *A* spoiler in my SP!
 
 ---
 
@@ -31,17 +24,17 @@
 ---
 
 <p align=center> .
-
-### *<p align=center>* [New rentry! (A majority is completed, but this is still a wip. Visit DNI here →)](https://rentry.co/Chrissy-beans) || [Old DNI!](https://rentry.co/chrissys-dni) 
-<p align=center> Old DNI is slightly outdated (missing only a couple things relating to selfshipping) but it's pretty much what my new DNI will be
   
+### *<p align=center>* [Rentry](https://rentry.co/Chrissy-beans) || [Old DNI (till I make the new one)](https://rentry.co/chrissys-dni) || [Status and nametag meanings](https://rentry.co/1-800-SPAMTONG)
+#### *<p align=center>* I am a chronic offtabber and idler, keep that in mind.
+
+<p align=center> Please no ship interactions for the love of god
+  
+*<p align=center>* If I'm sitting completely on top of someone I'm likely completely unaware! Whisper me if you're not sure, I don't bite.
+
 <p align=center> I block freely, so it's rarely ever personal. It could be for stuff like me not liking your vibe, me not liking something you said, etc. I'm free to curate my experience, so uhhh... sorry if that makes you mad ig. Also I'm a self/yumeshipper and if you dislike that then like, kindly go away. 
   
 *<p align=center>* Sorry, but top right spawn wall is where I sit all the time. I won't move for you when I next spawn in. I'll only go anywhere for my friends. If I happen to not be at spawn, I'm likely sitting with Wesker and Mary.
-
-  
-### *<p align=center>* [Status and nametag meanings](https://rentry.co/1-800-SPAMTONG)
-#### *<p align=center>* I use statuses differently than the everyday PTer, which is why I have this here. BTW I am a chronic offtabber and idler, keep that in mind.
 
 ---
 
