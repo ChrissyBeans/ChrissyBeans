@@ -30,7 +30,7 @@
 
 <p align=center> Please no ship interactions for the love of god
   
-*<p align=center>* Sorry, but top right spawn wall is where I sit all the time. I won't move for you when I next spawn in. I'll only go anywhere for my friends. If I happen to not be at spawn, I'm likely sitting with Wesker and Mary.
+*<p align=center>* Sorry, but top right spawn wall is where I sit all the time. I won't move for you when I next spawn in. I'll only go anywhere for my friends. If I happen to not be at spawn, I'm likely sitting with Wesker and Mary, but I can assure you, I **will** be back.
 *<p align=center>* If I'm sitting completely on top of someone for an extended time, I may be completely unaware! Whisper me if you're not sure, I don't bite.
 
 <p align=center> I block freely, so it's rarely ever personal. It could be for stuff like me not liking your vibe, me not liking something you said, etc. I'm free to curate my experience, so uhhh... sorry if that makes you mad ig. Also I'm a self/yumeshipper and if you dislike that then like, kindly go away. This is especially directed at people who dislike nonsharing selfshippers, or assume that nonsharers automatically think they own the character + stuff of that general caliber. <sub>If you're already my friend and want to know why the notion of thinking "nonsharers all think they own the character" annoys me, you're free to ask.</sub>
