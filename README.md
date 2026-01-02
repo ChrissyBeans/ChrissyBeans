@@ -25,7 +25,7 @@
 
 <p align=center> .
   
-### *<p align=center>* [Rentry](https://rentry.co/Chrissy-beans) || [Old DNI (till I make the new one)](https://rentry.co/chrissys-dni) || [Status and nametag meanings](https://rentry.co/1-800-SPAMTONG)
+### *<p align=center>* [Rentry](https://rentry.co/Chrissy-beans) (be aware that I'm going to make a directory, so some pages don't link to the main page.) || [Status and nametag meanings](https://rentry.co/1-800-SPAMTONG)
 #### *<p align=center>* I am a chronic offtabber and idler, keep that in mind.
 
 <p align=center> Please no ship interactions for the love of god
