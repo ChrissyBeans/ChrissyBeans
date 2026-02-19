@@ -26,7 +26,7 @@
 <p align=center> .
   
 ### *<p align=center>* [Rentry](https://rentry.co/Chrissy-beans) <sub>(be aware that I'm going to make a directory, so some pages don't link to the main page.)</sub> 
-### *<p align=center>* [Ponytown Boundaries](https://rentry.co/poniestown) || [Status and nametag meanings](https://rentry.co/1-800-SPAMTONG)
+### *<p align=center>* [Ponytown Boundaries](https://rentry.co/ponyboundaries) || [Status and nametag meanings](https://rentry.co/1-800-SPAMTONG)
 #### *<p align=center>* I am a chronic offtabber and idler, keep that in mind.
 
 <p align=center> Please no ship interactions for the love of god
