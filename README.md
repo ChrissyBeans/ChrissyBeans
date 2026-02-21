@@ -16,19 +16,13 @@
 
 ---
 
-#### *<p align=center>* Days since I got asked for supporter: 0
-
----
----
+### *<p align=center>* [My Rentry](https://rentry.co/poniestown)
+*<p align=center>* Days since I got asked for supporter: 0
 
 #### [↑ Please listen to this! ↑](https://www.youtube.com/watch?v=9nrEaHinGmY)
 
 ---
 
-<p align=center> .
-  
-### *<p align=center>* [My Rentry](https://rentry.co/poniestown)
----
 ##### *<p align=center>* If you're weird about systems I'm blocking you. I'm so sick of you people being weird about it.
 
 *<p align=center>* ![Video description: A gif, featuring a black background with many small, colorful neon stars. The stars are not full shapes, only outlines. They all drift slowly downwards, at a 45 degree angle. They pop into sight and fade out. They all spin, either quickly or slowly, while changing color over the course of their time in view. They are of varying sizes, some bigger while others are much smaller. There is a sort of depth to the gif, as there appear to be multiple layers, with some sorts being farther away from the camera. End VD.](https://github.com/user-attachments/assets/ccebceb9-7cbc-44e5-9a6d-254b0ab97b29)
