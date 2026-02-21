@@ -19,7 +19,6 @@
 #### *<p align=center>* Days since I got asked for supporter: 0
 
 ---
----
 
 #### [↑ Please listen to this! ↑](https://www.youtube.com/watch?v=9nrEaHinGmY)
 
