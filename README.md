@@ -14,7 +14,7 @@
 ### *<p align=center>* Please, sign my...
 ### *<p align=center>* [Strawpage](https://chrispybeans.straw.page/) || [Atabook](https://glassanimals.atabook.org/)
 
-#### *<p align=center>* Days since I got asked for supporter: 0
+### *<p align=center>* Days since I got asked for supporter: 0
 
 ---
 
