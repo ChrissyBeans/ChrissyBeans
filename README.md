@@ -14,7 +14,6 @@
 ### *<p align=center>* Please, sign my...
 ### *<p align=center>* [Strawpage](https://chrispybeans.straw.page/) || [Atabook](https://glassanimals.atabook.org/)
 
-#### *<p align=center>* Anyone who whispers me to compliment me, ily /p. Also if I'm unresponsive when whispered I'm probably asleep!
 #### *<p align=center>* Days since I got asked for supporter: 0
 
 ---
