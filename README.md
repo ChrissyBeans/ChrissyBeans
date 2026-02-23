@@ -11,7 +11,7 @@
 ### *<p align=center>* [DO YOUR DAILY CLICKS](https://arab.org/click-to-help/palestine/)
 
 ---
-### *<p align=center>* Please, sign my...
+#### *<p align=center>* Please, sign my...
 ### *<p align=center>* [Strawpage](https://chrispybeans.straw.page/) || [Atabook](https://glassanimals.atabook.org/)
 
 ---
@@ -19,9 +19,12 @@
 ### *<p align=center>* [My Rentry](https://rentry.co/poniestown)
 *<p align=center>* Days since I got asked for supporter: 0
 
+
 #### [↑ Please listen to this! ↑](https://www.youtube.com/watch?v=9nrEaHinGmY)
 
 ---
+
+*<p align=center>* NO SHIP INTERACTIONS FOR THE LOVE OF GOD
 
 ##### *<p align=center>* If you're weird about systems I'm blocking you. I'm so sick of you people being weird about it.
 
