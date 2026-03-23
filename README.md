@@ -24,7 +24,7 @@
 
 ---
 
-*<p align=center>* NO SHIP INTERACTIONS FOR THE LOVE OF GOD. Also proship DNI
+*<p align=center>* NO SHIP INTERACTIONS FOR THE LOVE OF GOD. ALSO PROSHIP DNI
 
 ##### *<p align=center>* If you're weird about systems I'm blocking you. I'm so sick of you people being weird about it.
 
