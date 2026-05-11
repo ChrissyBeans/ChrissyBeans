@@ -24,7 +24,7 @@
 
 ---
 
-*<p align=center>* NO SHIP INTERACTIONS FOR THE LOVE OF GOD. ALSO PROSHIP DNI. I DO NOT DO "FULL HIDES"! IT'S ONLY EVER FRQ BLOCKS OR MUTES. $\color{LimeGreen}{THIS\ INCLUDES\ DOING\ SO\ FOR\ YOUR\ OWN\ COMFORT!}$
+*<p align=center>* NO SHIP INTERACTIONS FOR THE LOVE OF GOD. ALSO PROSHIP DNI. I DO NOT DO "FULL HIDES"! IT'S ONLY EVER FRQ BLOCKS OR MUTES. $\color{Dandelion}{THIS\ INCLUDES\ DOING\ SO\ FOR\ YOUR\ OWN\ COMFORT!}$
 
 ##### *<p align=center>* If you're weird about systems I'm blocking you. I'm so sick of you people being weird about it.
 
