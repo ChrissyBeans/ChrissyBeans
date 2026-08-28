@@ -17,7 +17,7 @@
 ---
 
 ### *<p align=center>* [My Rentry](https://rentry.co/poniestown)
-*<p align=center>* Days since I got asked for supporter: 0
+*<p align=center>* Days since I got asked for supporter: 0. Also be aware I sit in the One Spot all the time and I do not move for strangers.
 
 
 #### [↑ Please listen to this! ↑](https://www.youtube.com/watch?v=9nrEaHinGmY)
